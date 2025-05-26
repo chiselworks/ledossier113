@@ -4,11 +4,11 @@ Texte original du roman policier « Le Dossier n° 113 » d'Émile Gaboriau publ
 Cette version du texte est en Markdown. Voir ce [document](./text.md).
 
 ## Progrès jusqu'à présent
-__Six__ pages sur _quatre cent quatre-vingt-sept_.
+__Quinze__ pages sur _quatre cent quatre-vingt-sept_.
 
 - [x] Page de couverture
 - [x] Chapitre I
-- [ ] Chapitre II
+- [x] Chapitre II
 - [ ] Chapitre III
 - [ ] Chapitre IV
 - [ ] Chapitre V
