@@ -1,4 +1,4 @@
-# Le Dossier n. 113
+# Le Dossier n° 113
 Texte original du roman policier « Le Dossier n° 113 » d'Émile Gaboriau publié en 1867.
 
 Cette version du texte est en Markdown. Voir ce [document](./text.md).
