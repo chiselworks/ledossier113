@@ -119,19 +119,19 @@ Le caissier principal de la maison André Fauvel, Prosper Bertomy, est un grand 
 
 Il serait vraiment très-bien s’il n’outrait le genre anglais, se faisant froid et gourmé à plaisir, et si un certain air de suffisance ne gâtait sa physionomie naturellement riante.
 
-— Ah ! vous voilà ! s’écria Cavaillon, on est déjà venu vous demander.
+— Ah! vous voilà! s’écria Cavaillon, on est déjà venu vous demander.
 
 — Qui? un maître de forges, n’est-ce pas?
 
 — Précisément.
 
-— Eh bien ! il reviendra. Sachant que j’arriverais tard ce matin, j’ai pris mes mesures hier.
+— Eh bien! il reviendra. Sachant que j’arriverais tard ce matin, j’ai pris mes mesures hier.
 
 Prosper avait ouvert son bureau, tout en parlant, il y entra refermant la porte sur lui.
 
-— À la bonne heure ! s’écria un des employés, voilà un caissier qui ne se fait pas de bile. Le patron lui a fait vingt scènes parce qu’il arrive toujours trop tard, il s’en soucie comme de l’an quarante.
+— À la bonne heure! s’écria un des employés, voilà un caissier qui ne se fait pas de bile. Le patron lui a fait vingt scènes parce qu’il arrive toujours trop tard, il s’en soucie comme de l’an quarante.
 
-— Il a, ma foi ! bien raison, puisqu’il obtient tout ce qu’il veut du patron.
+— Il a, ma foi! bien raison, puisqu’il obtient tout ce qu’il veut du patron.
 
 — D’ailleurs, comment viendrait-il matin; un garçon qui mène une vie d’enfer, qui passe toutes les nuits. Avez-vous remarqué sa mine de déterré, ce matin?
 
@@ -163,7 +163,7 @@ Peu à peu, Prosper revenait à lui.
 
 — Oui, trois paquets de cent billets de mille francs et un de cinquante. Les quatre paquets étaient entourés d’une feuille de papier et liés ensemble.
 
-Avec la rapidité de l’éclair la nouvelle d’un vol s’était répandue dans la maison de banque ; les curieux accoururent de toutes parts; le bureau était plein.
+Avec la rapidité de l’éclair la nouvelle d’un vol s’était répandue dans la maison de banque; les curieux accoururent de toutes parts; le bureau était plein.
 
 — Voyons, disait à Prosper le jeune Cavaillon, on a donc forcé la caisse?
 
@@ -197,7 +197,7 @@ Au moment où Cavaillon proposait de l’aller chercher, il parut.
 
 M. André Fauvel est un homme de cinquante ans environ, de taille moyenne, aux cheveux grisonnants. Il est assez gros, légèrement voûté, comme tous les travailleurs acharnés, et il a l’habitude de se dandiner en marchant.
 
-Jamais une seule de ses actions n’a démenti l’expression de bonté de son visage. Il a l’air ouvert, l’œil vif et franc, la lèvre rouge et bien épanouie. Né aux environs d’Aix, il retrouve, quand il s’anime, un léger accent provençal qui donne une saveur particulière à son esprit ; car il est spirituel.
+Jamais une seule de ses actions n’a démenti l’expression de bonté de son visage. Il a l’air ouvert, l’œil vif et franc, la lèvre rouge et bien épanouie. Né aux environs d’Aix, il retrouve, quand il s’anime, un léger accent provençal qui donne une saveur particulière à son esprit; car il est spirituel.
 
 La nouvelle portée par le garçon l’avait ému, car, lui d’ordinaire assez rouge, il était fort pâle.
 
@@ -267,7 +267,7 @@ Et du doigt le maître de forges désignait Cavaillon.
 
 — Cela d’ailleurs importe peu, reprit-il; je reviens, et cette fois non-seulement la caisse est fermée, mais on me refuse l’entrée des bureaux. Bien m’en a pris de violer la consigne; vous allez me dire si je puis, oui ou non, retirer mes fonds.
 
-M. Fauvel écoutait tremblant de colère; de blême il était devenu cramoisi ; pourtant il se contenait.
+M. Fauvel écoutait tremblant de colère; de blême il était devenu cramoisi; pourtant il se contenait.
 
 — Je vous serais obligé, monsieur, dit-il enfin d’une voix sourde, de vouloir bien m’accorder un délai.
 
@@ -628,9 +628,9 @@ Prosper, lui, s’était levé comme s’il eut reçu un choc électrique. Ses y
 
 — Madeleine! prononça-t-il, Madeleine!
 
-La jeune fille était devenue plus rouge qu’une pivoine. Elle semblait tout d’abord disposée à se retirer, elle fit même un pas en arrière ; mais Prosper s’étant avancé vers elle, un sentiment plus fort que sa volonté l’emporta et elle lui tendit sa main qu’il prit et serra respectueusement.
+La jeune fille était devenue plus rouge qu’une pivoine. Elle semblait tout d’abord disposée à se retirer, elle fit même un pas en arrière; mais Prosper s’étant avancé vers elle, un sentiment plus fort que sa volonté l’emporta et elle lui tendit sa main qu’il prit et serra respectueusement.
 
-Ils restèrent ainsi en présence, immobiles, oppressés ; si émus que tous deux ils baissaient la tête, redoutant la rencontre de leurs regards ; ayant tant de choses à se dire, que ne sachant comment commencer, ils se taisaient.
+Ils restèrent ainsi en présence, immobiles, oppressés; si émus que tous deux ils baissaient la tête, redoutant la rencontre de leurs regards; ayant tant de choses à se dire, que ne sachant comment commencer, ils se taisaient.
 
 Enfin, Madeleine murmura d’une voix à peine intelligible:
 
@@ -814,7 +814,7 @@ Cette déclaration parut toucher singulièrement le banquier.
 
 — Pauvre Prosper! murmura-t-il.
 
-Et, voyant l’étonnement de son interlocuteur, il ajouta :
+Et, voyant l’étonnement de son interlocuteur, il ajouta:
 
 — Jusqu’aujourd’hui, monsieur, j’ai eu en sa probité la foi la plus absolue; je lui aurais, sans hésiter, confié ma fortune. Je me suis presque mis à ses genoux pour obtenir l’aveu d’un moment d’égarement, lui promettant pardon et oubli: je n’ai pu le toucher. Je l’aimais, et maintenant encore, malgré les soucis et les humiliations que je prévois, je ne saurais le haïr.
 
@@ -950,7 +950,7 @@ L’instant d’après, en effet, Cavaillon parut à la porte de la maison de ba
 
 — Se méfierait-il de quelque chose? pensa Fanferlot.
 
-Non, le jeune employé ne se défiait de rien ; seulement, ayant une commission à faire, craignant que son absence ne fût remarquée, il se demandait quel chemin prendre pour couper au plus court.
+Non, le jeune employé ne se défiait de rien; seulement, ayant une commission à faire, craignant que son absence ne fût remarquée, il se demandait quel chemin prendre pour couper au plus court.
 
 Bientôt, il se décida; il gagna le faubourg Montmartre, le remonta et prit la rue Notre-Dame-de-Lorette. Il marchait très-vite, se souciant peu des murmures des passants qu’il coudoyait, et l’agent de la sûreté avait presque peine à le suivre.
 
@@ -1040,7 +1040,7 @@ Mais il en fut pour sa tentative, l’agent de la sûreté est aussi fort que do
 
 Certes, Cavaillon était dévoué à Prosper, mais il lui était prouvé clair comme le jour qu’une lutte ne le mènerait à rien, qu’il n’aurait même pas le temps d’anéantir « le corps du délit. »
 
-Livrer le billet dans ces conditions, ce n’était pas trahir ; il se résigna en maudissant son impuissance, pleurant presque de rage.
+Livrer le billet dans ces conditions, ce n’était pas trahir; il se résigna en maudissant son impuissance, pleurant presque de rage.
 
 — Vous êtes le plus fort, dit-il; j’obéis.
 
@@ -1072,7 +1072,7 @@ Ces deux mots: « tout absolument » étaient, il est vrai, soulignés, mais on 
 
 Cependant, l’agent de la sûreté crut devoir poursuivre.
 
-— Cette Mme Nina Gypsy, demanda-t-il à Cavaillon, est sans doute une amie de M. Prosper Bertomy?
+— Cette M<sup>me</sup> Nina Gypsy, demanda-t-il à Cavaillon, est sans doute une amie de M. Prosper Bertomy?
 
 — C’est sa maîtresse.
 
@@ -1094,7 +1094,7 @@ M. Fanferlot avait replié soigneusement le billet dans ses plis, il le glissa d
 
 — Monsieur!…
 
-— Oui, avec votre permission, je remettrai moi-même cette lettre à Mme Nina Gypsy.
+— Oui, avec votre permission, je remettrai moi-même cette lettre à M<sup>me</sup> Nina Gypsy.
 
 Cavaillon essaya une certaine résistance, il voulut discuter, mais M. Fanferlot était pressé, il coupa court à ses observations:
 
@@ -1108,7 +1108,7 @@ Cavaillon essaya une certaine résistance, il voulut discuter, mais M. Fanferlot
 
 — Prosper est innocent, monsieur, j’en suis sûr.
 
-C’était positivement l’opinion de Fanferlot ; mais il ne pouvait lui convenir de laisser deviner sa pensée intime, et, cependant, dans l’intérêt de ses investigations à venir, il lui importait d’imposer au jeune employé la prudence et la discrétion. Il aurait bien voulu le prier de se taire sur ce qui venait de se passer entre eux; mais il n’osa pas.
+C’était positivement l’opinion de Fanferlot; mais il ne pouvait lui convenir de laisser deviner sa pensée intime, et, cependant, dans l’intérêt de ses investigations à venir, il lui importait d’imposer au jeune employé la prudence et la discrétion. Il aurait bien voulu le prier de se taire sur ce qui venait de se passer entre eux; mais il n’osa pas.
 
 — Ce que vous dites est fort possible, répondit-il, et je l’espère pour M. Bertomy. Je l’espère surtout pour vous, qui, s’il est coupable, serez infailliblement inquiété, vu votre intimité notoire, et peut-être même soupçonné de complicité.
 
@@ -1116,7 +1116,7 @@ Cavaillon baissa la tête; il était atterré.
 
 — Ainsi, croyez-moi, mon jeune monsieur, poursuivit Fanferlot, allez reprendre vos occupations et… à l’honneur de vous revoir.
 
-Le pauvre garçon obéit. Lentement, le cœur bien gros, il regagna la rue Notre-Dame-de-Lorette. Il se demandait comment servir Prosper, comment avertir Mme Gypsy, comment surtout se venger de cet odieux agent de police qui venait de l’humilier si cruellement.
+Le pauvre garçon obéit. Lentement, le cœur bien gros, il regagna la rue Notre-Dame-de-Lorette. Il se demandait comment servir Prosper, comment avertir M<sup>me</sup> Gypsy, comment surtout se venger de cet odieux agent de police qui venait de l’humilier si cruellement.
 
 Dès qu’il eut disparu à l’angle de la rue, Fanferlot entra dans la maison, jeta au portier le nom de Prosper Bertomy, monta et sonna à la porte du premier étage.
 
@@ -1138,7 +1138,7 @@ Le nom de Prosper avait produit son effet, Fanferlot fut introduit dans un petit
 
 Mais il n’eut pas le loisir de poursuivre son inventaire; une des portières se souleva, M<sup>me</sup> Nina Gypsy parut.
 
-Mme Nina Gypsy est, ou, pour parler mieux, était alors une toute jeune femme, frêle, délicate, mignonne, brune, ou plutôt dorée comme une quarteronne de la Havane, avec des pieds et des mains d’enfant.
+M<sup>me</sup> Nina Gypsy est, ou, pour parler mieux, était alors une toute jeune femme, frêle, délicate, mignonne, brune, ou plutôt dorée comme une quarteronne de la Havane, avec des pieds et des mains d’enfant.
 
 De longs cils, soyeux et recourbés, tamisaient l’éclat trop vif de ses grands yeux noirs; ses lèvres, un peu épaisses, souriaient sur des dents plus blanches que la dent du chat, dents fines, brillantes, nacrées, aiguës à croquer dix patrimoines.
 
@@ -1164,7 +1164,7 @@ Tout autre que Fanferlot aurait été révolté de ces regards et de ce ton; lui
 
 — Elle n’est point bonne, non! pensa-t-il, et pas la moindre éducation.
 
-Il tardait à répondre, Mme Nina frappa du pied avec impatience.
+Il tardait à répondre, M<sup>me</sup> Nina frappa du pied avec impatience.
 
 — Parlerez-vous, répéta-t-elle, que voulez-vous?
 
@@ -1174,7 +1174,7 @@ Il tardait à répondre, Mme Nina frappa du pied avec impatience.
 
 — J’ai cet honneur, et même, si j’ose m’exprimer ainsi, je suis de ses amis.
 
-— Monsieur!… fit Mme Gypsy, blessée dans son amour-propre.
+— Monsieur!… fit M<sup>me</sup> Gypsy, blessée dans son amour-propre.
 
 M. Fanferlot ne daigna pas prendre garde à cette injurieuse exclamation. Il est ambitieux; le mépris, sur lui, glisse comme la pluie sur une cuirasse grasse.
 
@@ -1202,7 +1202,7 @@ Le vertige du coup de massue qu’elle venait de recevoir dura ce que dure l’�
 
 — Expliquez-vous, dit-elle; qu’est-ce que cela signifie? Vous savez ce que m’annonce cette lettre?
 
-Si brave qu’il soit, lui qui chaque jour affronte les plus dangereux coquins, Fanferlot eut presque peur de la colère de Mme Nina.
+Si brave qu’il soit, lui qui chaque jour affronte les plus dangereux coquins, Fanferlot eut presque peur de la colère de M<sup>me</sup> Nina.
 
 — Hélas! murmura-t-il.
 
@@ -1226,7 +1226,7 @@ Cette réponse parut confondre toutes les idées de M<sup>me</sup> Gypsy.
 
 Elle n’osa pas achever, mais ses yeux rencontrant ceux de Fanferlot, ils se comprirent.
 
-Le regard de Mme Nina voulait dire:
+Le regard de M<sup>me</sup> Nina voulait dire:
 
 — Ce serait donc pour moi, pour mon luxe, pour mes caprices, qu’il aurait volé?
 
@@ -1246,11 +1246,11 @@ Elle secoua tristement la tête; une larme, à grand’peine retenue, voilait l�
 
 * * *
 
-— Ah! oui…, interrompit M<sup>me</sup> Gypsy, pourquoi ? Vous serez bien habile, vous, de me le dire. Voici un an que je cherche vainement une réponse à cette question terrible pour moi, et je suis femme!… Mais allez donc deviner la pensée d’un homme si maître de soi que rien de ce qui se passe en son cœur ne remonte à ses yeux. Je l’ai observé comme une femme sait observer l’homme de qui dépend sa destinée, peine perdue ! Il est bon, il est doux, mais il n’offre aucune prise. On le croit faible, on se trompe. C’est une barre d’acier peinte en roseau, que cet homme à cheveux blonds.
+— Ah! oui…, interrompit M<sup>me</sup> Gypsy, pourquoi? Vous serez bien habile, vous, de me le dire. Voici un an que je cherche vainement une réponse à cette question terrible pour moi, et je suis femme!… Mais allez donc deviner la pensée d’un homme si maître de soi que rien de ce qui se passe en son cœur ne remonte à ses yeux. Je l’ai observé comme une femme sait observer l’homme de qui dépend sa destinée, peine perdue! Il est bon, il est doux, mais il n’offre aucune prise. On le croit faible, on se trompe. C’est une barre d’acier peinte en roseau, que cet homme à cheveux blonds.
 
-Emportée, par la violence de ses sentiments, Mme Nina laissait voir jusqu’au fond de son âme. Elle était sans défiance, ne pouvant se douter de la qualité de cet homme qui l’écoutait, qui lui était inconnu mais en qui elle voyait un ami de Prosper.
+Emportée, par la violence de ses sentiments, M<sup>me</sup> Nina laissait voir jusqu’au fond de son âme. Elle était sans défiance, ne pouvant se douter de la qualité de cet homme qui l’écoutait, qui lui était inconnu mais en qui elle voyait un ami de Prosper.
 
-Pour lui, Fanferlot, il s’applaudissait intérieurement de son bonheur et de son adresse. Il n’y a qu’une femme pour tracer un portrait ressemblant. En un moment d’exaltation, elle venait de lui donner les plus précieux renseignements ; il savait désormais à quel homme il avait affaire, ce qui dans une enquête est le point capital.
+Pour lui, Fanferlot, il s’applaudissait intérieurement de son bonheur et de son adresse. Il n’y a qu’une femme pour tracer un portrait ressemblant. En un moment d’exaltation, elle venait de lui donner les plus précieux renseignements; il savait désormais à quel homme il avait affaire, ce qui dans une enquête est le point capital.
 
 — C’est qu’on dit, hasarda-t-il, que M. Bertomy est joueur, et le jeu mène loin.
 
@@ -1360,7 +1360,7 @@ Mais alors il faut fuir, monsieur, fuir bien vite! Qui sait si la police n’est
 
 — Peu importe!…
 
-Et laissant seul l’agent de la sûreté, Mme Nina se précipita dans sa chambre à coucher, appelant à grands cris sa femme de chambre, sa cuisinière, le petit groom lui-même, ordonnant de vider les tiroirs et les armoires, d’entasser pêle-mêle dans des malles tout ce qui lui appartenait, et de se dépêcher surtout, de se presser.
+Et laissant seul l’agent de la sûreté, M<sup>me</sup> Nina se précipita dans sa chambre à coucher, appelant à grands cris sa femme de chambre, sa cuisinière, le petit groom lui-même, ordonnant de vider les tiroirs et les armoires, d’entasser pêle-mêle dans des malles tout ce qui lui appartenait, et de se dépêcher surtout, de se presser.
 
 * * *
 
@@ -1390,7 +1390,7 @@ M<sup>me</sup> Nina n’a jamais été longue à prendre une détermination.
 
 En une minute il eut fini.
 
-— Avec ces trois lignes, belle dame, dit-il, vous ferez de Mme Alexandre tout ce que vous voudrez.
+— Avec ces trois lignes, belle dame, dit-il, vous ferez de M<sup>me</sup> Alexandre tout ce que vous voudrez.
 
 — C’est bien! Maintenant, comment faire savoir mon adresse à Cavaillon? C’est lui qui devait me remettre la lettre de Prosper…
 
@@ -1408,10 +1408,10 @@ En effet, il alla s’établir de l’autre côté de la rue, chez un marchand d
 
 Il n’en eut guère le temps: de formidables coups de fouet troublaient le silence de la rue; M<sup>me</sup> Nina se rendait au Grand-Archange.
 
-— Allons ! s’écria-t-il gaîment, celle-là, du moins, je la tiens.
+— Allons! s’écria-t-il gaîment, celle-là, du moins, je la tiens.
 
 
-### IV
+## IV
 
 À cette heure même où M<sup>me</sup> Nina Gypsy allait chercher un refuge à cet hôtel du Grand-Archange, qui lui avait été indiqué par M. Fanferlot, dit l’Écureuil, Prosper Bertomy était écroué au dépôt de la préfecture de police.
 
