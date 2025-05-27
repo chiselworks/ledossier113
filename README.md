@@ -9,7 +9,7 @@ __Quinze__ pages sur _quatre cent quatre-vingt-sept_.
 - [x] Page de couverture
 - [x] Chapitre I
 - [x] Chapitre II
-- [ ] Chapitre III
+- [x] Chapitre III
 - [ ] Chapitre IV
 - [ ] Chapitre V
 - [ ] Chapitre VI
