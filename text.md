@@ -1422,3 +1422,500 @@ Vainement les gens qui l’entouraient, observateurs ingénieux, avaient épié 
 Même, on aurait pu le croire insensible à son affreuse
 
 * * *
+
+situation, sans une oppression douloureuse que révélait sa respiration plus pressée, sans les gouttes de sueur qui perlaient le long de ses tempes, trahissant d’horribles angoisses.
+
+Chez le commissaire de police où il était resté plus de deux heures pendant qu’on était allé quérir des ordres, il avait causé avec les deux sergents de ville qui le gardaient.
+
+— Vers midi, étant à jeun, il sentit, à ce qu’il déclara, le besoin de prendre quelque chose. On lui fit apporter à déjeuner du restaurant voisin, et il mangea d’assez bon appétit, et but presque toute une bouteille de vin.
+
+Pendant qu’il était là, dix agents au moins et divers employés de la préfecture, qui tous les matins ont affaire aux commissaires de police, vinrent examiner curieusement sa contenance. Tous eurent la même opinion et la formulèrent dans des termes presque pareils. Ils disaient:
+
+— C’est un solide mâtin!
+
+Ou encore:
+
+— Ce gaillard-là est trop tranquille pour n’être pas gardé à carreau.
+
+Lorsqu’on lui annonça qu’un fiacre l’attendait en bas, il se leva vivement; mais avant de descendre, il demanda la permission d’allumer un cigare, permission qui lui fut accordée.
+
+Sous la porte de la maison du commissaire, se tient habituellement une marchande de fleurs. Il lui acheta un petit bouquet de violettes. Cette femme, comprenant qu’il était arrêté, et lui ayant dit en manière de remerciement:
+
+— Bonne chance! mon pauvre monsieur!
+
+Il parut touché de cette marque banale d’intérêt et répondit:
+
+— Merci, ma brave femme, mais il y a longtemps que je n’en ai plus.
+
+Il faisait un temps magnifique, une resplendissante journée de printemps. Tout le long de la rue Montmar-
+
+* * *
+
+tre que suivait le fiacre, Prosper mit plusieurs fois la tête à la portière, se plaignant, en souriant, d’être mis en prison par ce beau soleil, lorsqu’il ferait si bon être dehors.
+
+— C’est même singulier, fit-il, jamais je n’ai eu si grande envie de me promener.
+
+Un de ses gardiens, qui était un gros garçon réjoui et épais, accueillit cette réflexion par un énorme éclat de rire, et dit:
+
+— Je comprends cela.
+
+Au greffe, pendant qu’on remplissait les formalités de l’écrou, Prosper répondit avec une hauteur mêlée de dédain aux questions indispensables qui lui furent adressées.
+
+Mais, lorsqu’après lui avoir ordonné de vider ses poches sur la table, on s’approcha pour le fouiller, un éclair d’indignation jaillit de ses yeux, puis une larme chaude aussitôt séchée au feu de ses pommettes. Ce ne fut qu’un éclair. Il se laissa faire, levant les bras, pendant que, du haut en bas, des mains brutales le palpaient pour s’assurer qu’il ne dissimulait pas sous ses vêtements quelque objet suspect.
+
+Les investigations auraient peut-être été poussées plus loin et seraient devenues bien autrement ignominieuses sans l’intervention d’un homme d’un certain âge, d’apparence distinguée, portant cravate blanche et lunettes à branches d’or, qui se chauffait près du poêle, et qui, en ce lieu, semblait être chez lui.
+
+À la vue de Prosper, qui entrait suivi des agents, il eut un geste de surprise et parut extrêmement ému; il s’avança même, comme pour lui adresser la parole, mais il se ravisa.
+
+Si troublé que fut le caissier, il ne put s’empêcher de remarquer que les yeux de cet homme restaient obstinément fixés sur lui. Le connaissait-il donc? Il eut beau chercher dans ses souvenirs, il ne se rappela pas l’avoir jamais vu.
+
+Cet homme, aux allures de chef de bureau, n’était
+
+* * *
+
+autre qu’un illustre employé de la préfecture de police, M. Lecoq.
+
+Au moment où les agents qui avaient fouillé Prosper, s’apprêtaient à lui faire retirer ses bottes — une lime ou une arme tiennent si peu de place! — M. Lecoq fit un signe et dit:
+
+— C’est assez.
+
+Les autres obéirent. Toutes les formalités étaient remplies, et enfin on conduisit le malheureux caissier à une étroite cellule; la porte, à grand renfort de verroux et de serrures, se referma sur lui; il respira; il était seul.
+
+Oui, il se croyait seul, bien seul! il ignorait que la prison est de verre, que l’inculpé y est comme le misérable insecte sous le microscope de l’entomologiste. Il ne savait pas que les murs ont des oreilles toujours béantes, les guichets des yeux toujours fixes.
+
+Il était si sûr d’être seul que toute sa fierté se fondit en un torrent de larmes, son masque d’impassibilité tomba. Sa colère, si longtemps contenue, éclata violente et terrible, comme un incendie qui, ayant longtemps couvé, a desséché toutes les matières inflammables.
+
+Il s’emporta follement, il cria, il eut des imprécations et des blasphèmes. Il meurtrit ses poings aux murailles dans un accès de rage folle et impuissante comme celle de la bête fauve enfermée après le premier moment de stupeur.
+
+C’est que Prosper Bertomy n’était pas ce qu’il paraissait être.
+
+Ce gentleman hautain et correct, sorte de gandin glacé, avait des passions ardentes et un tempérament de feu.
+
+Mais, un jour, vers vingt-quatre ans, l’ambition l’avait mordu au cœur. Pendant que tous ses désirs souffraient, emprisonnés dans sa médiocrité comme un lycéen dans une tunique trop étroite, regardant autour de lui tous ces riches auxquels l’argent donne la baguette des mille et une nuits, il envia leur sort.
+
+* * *
+
+Il rechercha les origines et le point de départ de tous les chefs opulents des grandes entreprises financières, et il reconnut qu’à leurs débuts ils possédaient pour la plupart moins que lui.
+
+Comment donc s’étaient-ils élevés? À force d’énergie, d’intelligence et d’audace. Pour eux, la pensée féconde avait été comme la lampe merveilleuse aux mains d’Aladin.
+
+Il se jura de les imiter et d’arriver comme eux.
+
+De ce jour, avec une force de volonté beaucoup moins rare qu’on ne croit, il imposa silence à ses instincts. Il réforma, non son caractère, mais les dehors de son caractère.
+
+Et ses efforts n’avaient pas été perdus. On avait foi en son caractère et en ses moyens. Ceux qui le connaissaient disaient:
+
+— Il arrivera!…
+
+Et il était là, en prison, accusé d’un vol, c’est-à-dire perdu.
+
+Car il ne s’abusait pas. Il savait qu’innocent ou coupable, l’homme soupçonné est marqué d’une flétrissure aussi ineffaçable que les lettres jadis imprimées au fer rouge sur l’épaule des forçats.
+
+Dès lors à quoi bon lutter! À quoi bon un triomphe qui ne lave pas la souillure!…
+
+Quand le gardien de service, le soir, lui apporta son repas, il le trouva étendu sur son lit, la tête enfoncée dans son oreiller, pleurant à chaudes larmes.
+
+Ah! il n’avait plus faim, maintenant qu’il était seul. Un invincible engourdissement l’envahissait; sa volonté éperdue flottait dans un brouillard opaque.
+
+La nuit vint, longue, terrible, et pour la première fois il n’eut pour mesurer les heures que le pas cadencé des rondes relevant les sentinelles. Il souffrait.
+
+Au matin, cependant, le sommeil lui vint avec le jour, et il dormait encore lorsque la voix du geôlier retentit dans la cellule.
+
+— Allons, monsieur, disait-il, à l’instruction!
+
+* * *
+
+D’un bond il fut debout, il allait donc être interrogé.
+
+— Marchons, dit-il, sans songer à réparer le désordre de sa toilette.
+
+Pendant le trajet, son gardien lui dit:
+
+— Vous avez du bonheur, vous allez avoir affaire à un bien brave homme.
+
+Le gardien avait mille fois raison.
+
+Doué d’une pénétration remarquable, ferme, incapable de parti pris, également éloigné d’une fausse pitié et d’une sévérité excessive, M. Patrigent possède, à un degré éminent, toutes les qualités qu’exige la délicate et difficile mission du juge d’instruction.
+
+Peut-être manque-t-il de la fébrile activité, parfois nécessaire pour frapper vite et juste; mais il possède une de ces patiences robustes que rien ne lasse ni ne décourage. Fort capable, d’ailleurs, de suivre pendant des années une instruction, comme il le fit lors de l’affaire des billets belges, dont il ne réunit les fils qu’après quatre ans d’investigations.
+
+Aussi, était-ce dans son cabinet que venaient s’échouer les affaires éternelles, les enquêtes restées en chemin, les procédures incomplètes.
+
+Tel est, aussi exactement que possible, l’homme vers lequel on conduisait Prosper; et on le conduisait par un chemin bien difficile.
+
+On lui fit suivre un long corridor, traverser une salle pleine de gendarmes de Paris, descendre un escalier, traverser une manière de souterrain, puis monter un étroit et raide escalier qui n’en finissait pas.
+
+Enfin, il arriva dans une longue et étroite galerie, basse d’étage, sur laquelle ouvraient quantité de portes numérotées.
+
+Le gardien du malheureux caissier l’arrêta devant une de ces portes.
+
+— Nous y sommes, lui dit-il; c’est ici que va se décider votre sort.
+
+À cette réflexion du gardien, faite d’un ton de com-
+
+* * *
+
+misération profonde, Prosper ne put s’empêcher de frissonner.
+
+C’était vrai pourtant: là, derrière cette porte, se trouvait un homme qui allait l’interroger, et selon ce qu’il répondrait, il serait relâché ou le mandat d’amener qu’on lui avait signifié la veille serait converti en mandat de dépôt.
+
+Cependant, faisant appel à tout son courage, il posait déjà la main sur le bouton de la porte, lorsque son gardien l’arrêta.
+
+— Oh! pas encore, lui dit-il, on n’entre pas comme cela: asseyez-vous, on vous appellera quand votre tour sera venu.
+
+L’infortuné obéit, et son gardien prit place près de lui.
+
+Rien d’affreux, rien de lugubre comme une station dans cette sombre galerie des juges d’instructions.
+
+D’un bout à l’autre est établi contre le mur un grossier banc de chêne, noirci par un usage quotidien. Involontairement on songe que sur ce banc sont venus tour à tour, depuis dix ans, s’asseoir tous les prévenus, tous les voleurs, tous les assassins du département de la Seine.
+
+C’est que tôt ou tard, fatalement, comme l’immondice à l’égout, le crime arrive à cette terrible galerie qui a une porte sur le bagne, l’autre sur la plate-forme de l’échafaud. C’est là, selon la triviale mais énergique expression d’un premier président, le grand lavoir public de tout le linge sale de Paris.
+
+La galerie, à l’heure où Prosper y arriva, était fort animée. Le banc était presque entièrement occupé. À côté de lui, si près qu’il le coudoyait, on avait placé un homme en haillons, à figure sinistre.
+
+Devant chaque porte, qui est celle d’un juge d’instruction, se tenaient des groupes de témoins, où on causait à voix basse. À tout moment, allaient et venaient des gendarmes de Paris, dont les fortes bottes résonnaient sur les dalles, et qui amenaient ou reconduisaient des pri-
+
+* * *
+
+sonniers. Parfois, dominant le sourd murmure, on entendait un sanglot, et une femme, la mère ou la sœur de quelque prévenu, passait un mouchoir sur les yeux. À de courts intervalles, une porte s’ouvrait et se refermait, et la voix d’un huissier criait un nom ou un numéro.
+
+À ce spectacle, à ces contacts flétrissants, au milieu de cette atmosphère chaude et chargée d’émanations étranges, le caissier se sentait défaillir, quand un petit vieux, vêtu de noir avec les insignes de sa dignité, la chaîne d’acier en sautoir, cria:
+
+— Prosper Bertomy!
+
+Le malheureux se dressa tout d’une pièce, et, sans savoir comment, se trouva poussé dans le cabinet du juge d’instruction.
+
+Tout d’abord, il fut aveuglé. Il quittait un endroit fort obscur, et la fenêtre de la pièce où il entrait, placée en face de la porte, versait à flots un jour éclatant et criard.
+
+Ce cabinet, comme tous ceux de la galerie, est sans physionomie particulière. On s’y croirait chez n’importe quel homme d’affaires.
+
+Il est tendu d’un papier économique vert foncé, et à terre est un méchant tapis à vulgaires dessins noirs.
+
+Vis-à-vis la porte est un grand bureau, encombré de dossiers, derrière lequel est placé le juge, faisant face à ceux qui entrent, de telle sorte que son visage reste dans l’ombre, pendant que celui des prévenus ou des témoins qu’il interroge est en pleine lumière. À droite, est une petite table où écrit le greffier, cet indispensable auxiliaire du juge.
+
+Mais Prosper ne remarquait pas ces détails. Toute son attention se concentrait sur le magistrat, et, à mesure qu’il l’examinait mieux, il se disait que son gardien ne l’avait pas trompé.
+
+Il est vrai que la figure de M. Patrigent, figure irrégulière, encadrée de courts favoris roux, animée par des yeux vifs et spirituels, respirant la bonté, est de celles qui, au premier abord, rassurent et attirent.
+
+* * *
+
+— Prenez une chaise, dit-il à Prosper.
+
+Cette attention fut d’autant plus sensible au prévenu, qu’il s’attendait à être traité avec le dernier mépris. Elle lui parut d’un favorable augure, et lui rendit quelque liberté d’esprit.
+
+Cependant M. Patrigent avait fait un signe à son greffier.
+
+— Nous commençons, Sigault, dit-il, attention.
+
+Et se retournant vers Prosper:
+
+— Comment vous appelez-vous? demanda-t-il.
+
+— Auguste-Prosper Bertomy, monsieur.
+
+— Quel âge avez-vous?
+
+— J’aurai trente ans le 5 mai prochain.
+
+— Quelle est votre profession?
+
+— Je suis, monsieur, c’est-à-dire j’étais le caissier de la maison de banque André Fauvel.
+
+Le magistrat l’interrompit pour consulter un petit agenda placé près de lui. Prosper, qui suivait attentivement tous ses mouvements, se prenait à espérer, se disant que jamais un homme ayant l’air si peu prévenu contre lui ne le retiendrait en prison.
+
+Le renseignement qu’il cherchait trouvé, M. Patrigent reprit l’interrogatoire:
+
+— Où demeurez-vous? demanda-t-il.
+
+— Rue Chaptal, 39, depuis quatre ans. J’habitais avant, 7, boulevard des Batignolles.
+
+— Où êtes-vous né?
+
+— À Beaucaire, département du Gard.
+
+— Avez-vous encore vos parents?
+
+— J’ai perdu ma mère il y a deux ans, monsieur, mais j’ai encore mon père.
+
+— Habite-t-il Paris?
+
+— Non, monsieur, il habite Beaucaire avec ma sœur qui est mariée à l’un des ingénieurs du canal du Midi.
+
+C’est d’une voix affreusement troublée que Prosper répondit à ces dernières questions. C’est que s’il est des heures dans la vie où le souvenir de la famille encourage
+
+* * *
+
+et console, il est de ces moments affreux où on voudrait être seul au monde et sortir des Enfants trouvés.
+
+M. Patrigent remarqua fort bien et nota cette émotion de son prévenu lorsqu’il lui avait parlé de ses parents.
+
+— Et, quelle est, continua-t-il, la profession de votre père?
+
+— Il a été, monsieur, conducteur des ponts et chaussées, puis employé au canal du Midi, comme mon beau-frère; maintenant il a pris sa retraite.
+
+Il y eut un moment de silence. Le juge d’instruction avait placé son fauteuil de telle sorte que tout en paraissant avoir la tête tournée, il ne perdait rien absolument du jeu de la physionomie de Prosper.
+
+— Eh bien! fit-il tout à coup, vous êtes accusé d’avoir volé à votre patron 350,000 francs.
+
+Depuis vingt-quatre heures, le malheureux jeune homme avait eu le temps de se familiariser avec la terrible idée de cette accusation, et cependant, ainsi formulée et précisée, elle l’atterra, et il lui fut impossible d’articuler une syllabe.
+
+— Qu’avez-vous à répondre? insista le juge d’instruction.
+
+— Je suis innocent, monsieur, je vous le jure, je suis innocent!
+
+— Je le souhaite pour vous, fit M. Patrigent, et vous pouvez comptez sur moi pour vous aider de toutes mes forces à faire éclater votre innocence. Avez-vous, du moins, quelques faits à alléguer pour votre défense, quelques preuves à donner?
+
+— Eh! monsieur, que puis-je dire, lorsque moi-même je ne comprends pas ce qui a pu se passer! Je ne puis qu’invoquer ma vie entière…
+
+Le magistrat interrompit Prosper d’un geste.
+
+— Précisons, dit-il; le vol a été commis dans des circonstances telles que les soupçons ne peuvent, ce semble, atteindre que M. Fauvel ou vous. Peut-on soupçonner quelque autre personne?
+
+* * *
+
+— Non monsieur.
+
+— Vous vous dites innocent, le coupable est donc M. Fauvel.
+
+Prosper ne répondit pas.
+
+— Avez-vous, insista M. Patrigent, quelque motif de croire que votre patron s’est volé lui-même? Si léger qu’il soit, dites-le moi.
+
+Et comme le prévenu gardait toujours le silence:
+
+— Allons, reprit le juge, vous avez, je le vois, besoin de réfléchir encore. Écoutez la lecture de votre interrogatoire que va vous faire mon greffier, vous signerez ensuite et on vous reconduira en prison.
+
+Le malheureux était anéanti. La dernière lueur qui avait éclairé son désespoir s’éteignait. Il n’entendit rien de ce que lui lut Sigault, c’est sans voir qu’il signa.
+
+Il était si chancelant en sortant du cabinet du juge, que son gardien lui conseilla de s’appuyer sur lui.
+
+— Cela ne va donc pas bien? lui dit cet homme; allons, monsieur, il faut du courage.
+
+Du courage! Prosper n’en avait plus quand il se retrouva dans sa cellule; mais avec la colère, la haine entrait dans son cœur.
+
+Il s’était promis qu’il parlerait au juge d’instruction, qu’il se défendrait, qu’il établirait son innocence, on ne lui en avait pas laissé le temps. Il se reprochait amèrement d’avoir cru à des apparences de bienveillance.
+
+— Quelle dérision! disait-il, est-ce donc là un interrogatoire?
+
+Non, ce n’était pas un interrogatoire, en effet, mais une simple formalité.
+
+En faisant comparaître Prosper, M. Patrigent obéissait à l’article 93 du Code d’instruction criminelle, lequel dit que « tout inculpé sous le coup d’un mandat d’amener sera interrogé dans les vingt-quatre heures au plus tard. »
+
+Mais ce n’est pas en vingt-quatre heures, surtout dans une affaire comme celle-là, en l’absence de tout corps de délit, de toute preuve matérielle, de tout indice même,
+
+* * *
+
+qu’un juge d’instruction peut réunir les éléments d’un interrogatoire.
+
+Pour triompher de l’opiniâtre défense d’un prévenu qui se renferme dans la négation absolue comme dans une forteresse, il faut des armes. Ces armes, M. Patrigent s’occupait à les préparer.
+
+Si Prosper était resté une heure de plus dans la galerie, il aurait vu le même huissier qui l’avait appelé sortir du cabinet du juge d’instruction et crier:
+
+— Le numéro 3!
+
+Le témoin qui avait le numéro 3, et qui s’était assis, en attendant son tour, sur le banc de bois, c’était M. André Fauvel.
+
+Le banquier n’était plus le même homme.
+
+Autant, dans ses bureaux, il avait paru animé d’intentions bienveillantes, autant, lorsqu’il entra chez le juge, il semblait irrité contre son caissier. La réflexion qui, d’ordinaire, amène avec le calme le besoin de pardonner, ne lui avait apporté que colère et désirs de vengeance.
+
+Les inévitables questions qui commencent tout interrogatoire lui avaient à peine été adressées que son naturel fougueux l’emportant, il se répandit contre Prosper en récriminations et même en invectives.
+
+Il fallut que M. Patrigent lui imposât silence, lui rappelant ce qu’il se devait à lui-même, quels que fussent d’ailleurs les torts de son employé.
+
+Facile tout à l’heure avec le prévenu, le juge d’instruction devenait attentif et méticuleux. C’est que l’interrogatoire de Prosper n’avait été qu’une formalité, la constatation d’un fait brutal. Il s’agissait maintenant de rechercher les faits accessoires, les particularités, de grouper enfin en faisceau les circonstances, en apparence les plus insignifiantes, pour en tirer une conviction.
+
+— Procédons par ordre, monsieur, dit-il à M. Fauvel, et, pour le moment, bornez-vous, je vous prie, à répondre à mes questions. Doutiez-vous de la probité de votre caissier?
+
+* * *
+
+— Certes, non! Et cependant, mille raisons auraient dû m’inquiéter.
+
+— Quelles raisons, je vous prie?
+
+— M. Bertomy, mon caissier, jouait, il passait des nuits au baccarat, à diverses reprises j’ai su qu’il avait perdu de fortes sommes. Il avait de mauvaises connaissances. Une fois, avec un des clients de ma maison, M. de Clameran, il s’est trouvé mêlé à une affaire scandaleuse de jeu, qui avait commencé chez une femme, et qui s’est terminée en police correctionnelle.
+
+Et pendant plus d’une minute, le banquier chargea terriblement Prosper. Quand enfin il s’arrêta:
+
+— Avouez, monsieur, fit le juge, que vous êtes bien imprudent, pour ne pas dire bien coupable, d’avoir osé confier votre caisse à un tel homme.
+
+— Eh! monsieur, répondit M. Fauvel, Prosper n’a pas toujours été ainsi. Jusqu’à l’an passé, il a été le modèle des hommes de son âge. Admis dans ma maison, il faisait presque partie de ma famille, il passait toutes ses soirées avec nous, il était l’ami intime de mon fils aîné, Lucien. Puis, tout à coup, brusquement, du jour au lendemain, il a cessé ses visites et nous ne l’avons plus revu. Cependant, j’avais tout lieu de le croire fort épris de ma nièce Madeleine.
+
+M. Patrigent eut un certain froncement de sourcils qui lui est familier quand il croit avoir saisi quelque indice.
+
+— Ne serait-ce pas précisément cette inclination, demanda-t-il, qui aurait déterminé l’éloignement de M. Bertomy?
+
+— Pourquoi? fit le banquier de l’air le plus surpris. Je lui aurais le plus volontiers du monde accordé la main de Madeleine, et pour être franc, je supposais qu’il me la demanderait. Ma nièce eût été un beau parti, un parti inespéré pour lui; elle est très-jolie, et elle aura un demi-million de dot.
+
+— Alors, vous ne voyez nul motif à la conduite de votre caissier?
+
+* * *
+
+Le banquier parut chercher.
+
+— Aucun absolument, répondit-il. J’ai toujours supposé que Prosper avait été entraîné hors du droit chemin par un jeune homme dont il fit la connaissance chez moi à cette époque, M. Raoul de Lagors.
+
+— Ah!… et quel est ce jeune homme?
+
+— Un parent de ma femme, un charmant garçon, spirituel, bien élevé, un peu étourdi, mais assez riche pour payer ses étourderies.
+
+Le juge d’instruction n’avait plus l’air d’écouter; il inscrivait ce nom de Lagors sur son agenda, à la suite d’une liste de noms déjà longue.
+
+— Maintenant, reprit-il, arrivons au fait: Vous êtes sûr que le vol n’a pas été commis par personne de votre maison!
+
+— Matériellement sûr; oui, monsieur.
+
+— Votre clé ne vous quittait jamais?
+
+— Rarement, du moins; et quand je ne la portais pas sur moi, je la déposais dans un des tiroirs du secrétaire de ma chambre à coucher.
+
+— Où était-elle, le soir du vol?
+
+— Dans mon secrétaire.
+
+— Mais alors…
+
+— Pardon, monsieur, interrompit M. Fauvel, permettez-moi de vous faire remarquer que pour un coffre-fort comme le mien la clé ne signifie rien. Avant tout il faut connaître le mot sur lequel tournent les cinq boutons mobiles. Avec le mot, on peut à la rigueur ouvrir sans clé, mais sans le mot…
+
+— Et ce mot, vous ne l’avez dit à personne?
+
+— À personne au monde, non monsieur. Et tenez, j’aurais été parfois bien embarrassé de dire sur quel mot ma caisse était fermée. Prosper le changeait quand bon lui semblait, il me prévenait et il m’arrivait de l’oublier.
+
+— L’aviez-vous oublié, le jour du vol?
+
+— Non, le mot avait été changé l’avant-veille et sa singularité m’avait frappé.
+
+* * *
+
+— Quel était-il?
+
+— Gypsy, G, y, p, s, y, fit le banquier dictant l’orthographe.
+
+Ce mot aussi, M. Patrigent l’écrivit.
+
+— Encore une question, monsieur, dit-il, étiez-vous chez vous la veille du vol?
+
+— Non, monsieur. Je dînais chez un de mes amis et j’y ai passé la soirée. Lorsque je suis rentré chez moi, vers une heure, ma femme était couchée, et je me suis moi-même couché immédiatement.
+
+— Et vous ignoriez quelle somme se trouvait dans la caisse?
+
+— Absolument. D’après mes ordres formels, je devais supposer qu’il ne s’y trouvait qu’une somme insignifiante: je l’ai déclaré à monsieur le commissaire, et M. Bertomy l’a reconnu.
+
+— C’est exact, le procès-verbal en fait foi.
+
+M. Patrigent se tut. Pour lui, tout était dans ce fait: « Le banquier ignorait qu’il y eût 350,000 francs en caisse et Prosper avait manqué à son devoir en les faisant retirer de la Banque », donc… la conclusion était facile à tirer.
+
+Voyant qu’on ne l’interrogeait plus, le banquier pensa qu’il pouvait enfin dire tout ce qu’il avait sur le cœur.
+
+— Je me crois au-dessus du soupçon, monsieur, commença-t-il, et cependant je ne dormirai tranquille que lorsque la culpabilité de mon caissier aura été parfaitement établie. La calomnie s’attaque de préférence à l’homme qui a réussi; je puis être calomnié. 350,000 francs sont une fortune capable de tenter le plus riche. Je vous serai reconnaissant de faire examiner la situation de ma maison, cet examen prouvera que je ne puis avoir nul intérêt à me voler moi-même, la prospérité de mes affaires…
+
+— Il suffit, monsieur.
+
+Il suffisait en effet. Déjà M. Patrigent était renseigné et savait aussi bien que le banquier à quoi s’en tenir sur sa situation.
+
+* * *
+
+Il le pria de signer son interrogatoire, et le reconduisit jusqu’à la porte de son cabinet, faveur rare, de sa part.
+
+M. Fauvel sorti, Sigault, le greffier, se permit une observation.
+
+— Voilà une affaire diablement obscure, dit-il. Si le caissier est adroit et ferme, il me paraît bien difficile de le convaincre.
+
+— Peut-être, répondit le juge; mais voyons les autres témoins.
+
+Celui qui avait le numéro 4, n’était autre que Lucien, le fils aîné de M. Fauvel.
+
+Ce jeune homme, grand et beau garçon, de vingt-deux ans, répondit qu’il aimait beaucoup Prosper, qu’il avait était fort lié avec lui et qu’il l’avait toujours considéré comme un honnête homme, incapable même d’une indélicatesse.
+
+Il déclara qu’à cette heure encore, il ne pouvait s’expliquer comment et par quelle suite de circonstances fatales Prosper en était venu à commettre un vol. Il s’était aperçu que Prosper jouait, mais non autant qu’on le prétendait. Il n’avait jamais vu qu’il fît des dépenses au-dessus de ses moyens.
+
+Au sujet de sa cousine Madeleine, il répondit:
+
+— J’ai toujours pensé que Prosper était amoureux de Madeleine, et jusqu’à hier j’ai été convaincu qu’il l’épouserait, sachant que mon père ne s’opposerait pas à ce mariage. J’ai toujours attribué la désertion de Prosper à une brouille avec ma cousine, mais j’étais persuadé qu’ils finiraient par se réconcilier.
+
+Ces renseignements, mieux encore que ceux de M. Fauvel, éclairaient le passé du caissier, mais ne révélaient en apparence aucun indice dont on pût tirer parti dans les conjonctures présentes.
+
+Lucien signa sa déposition et se retira.
+
+C’était au jeune Cavaillon à être interrogé.
+
+Le pauvre garçon était, lorsqu’il se présenta devant le juge, dans un état à faire pitié.
+
+* * *
+
+Ayant, en grand secret, la veille, raconté à un de ses amis, clerc d’avoué, son aventure avec l’agent de la sûreté, ce clerc l’avait outrageusement plaisanté de sa poltronnerie. Il éprouvait d’affreux remords et avait passé la nuit à se reprocher d’avoir perdu Prosper.
+
+Il eut au moins ce mérite de s’efforcer de réparer ce qu’il appelait sa trahison.
+
+Il n’accusa pas précisément M. Fauvel, mais il déclara courageusement qu’il était l’ami du caissier, son obligé, et qn’il était sûr de son innocence comme de la sienne propre.
+
+Malheureusement, outre qu’il n’avait nulles preuves à fournir à l’appui de ses dires, sa profession d’amitié passionnée enlevait beaucoup de valeur à ses déclarations.
+
+Après Cavaillon, six ou huit employés de la maison Fauvel défilèrent successivement dans le cabinet du juge; mais leurs dépositions furent presque toutes insignifiantes.
+
+L’un d’eux, cependant, donna un détail que nota le juge. Il prétendit savoir que Prosper avait spéculé à la Bourse, par l’entremise de M. Raoul de Lagors, et gagné des sommes importantes.
+
+Cinq heures sonnaient lorsque la liste des témoins cités pour ce jour fut épuisée. Mais la tâche de M. Patrigent n’était pas terminée encore. Il sonna son huissier, qui parut presque aussitôt, et lui dit:
+
+— Allez, au plus vite, me chercher Fanferlot.
+
+L’agent de la sûreté fut long à se rendre aux ordres du juge. Ayant rencontré dans la galerie un de ses collègues, il s’était cru obligé à une politesse, et l’huissier avait été obligé d’aller le relancer au petit estaminet du coin.
+
+— Depuis quand vous faites-vous attendre? dit sévèrement le juge lorsqu’il entra.
+
+Fanferlot, qui s’était présenté en saluant jusqu’à terre, s’inclina, s’il est possible, plus profondément encore.
+
+C’est qu’en dépit de son visage riant, mille inquiétu-
+
+* * *
+
+des le taquinaient. Pour suivre seul l’affaire Bertomy, il lui fallait jouer un double jeu qu’on pouvait découvrir. À ménager la chèvre de la justice et le chou de son ambition, il courait de gros risques, dont le moindre était de perdre sa place.
+
+— J’ai eu beaucoup à faire, répondit-il pour s’excuser, et je n’ai pas perdu mon temps.
+
+Et tout aussitôt il se mit à rendre compte de ses démarches. Non sans embarras, par exemple, car il ne parlait qu’avec toutes sortes de restrictions, triant ce qu’il devait dire et ce qu’il pouvait taire. Ainsi, il livra l’histoire de la lettre de Cavaillon, remit même au juge cette lettre qu’il avait volée à Gypsy, mais il ne souffla mot de Madeleine. En revanche, il donna sur Prosper et sur madame Gypsy une foule de détails biographiques ramassés un peu partout.
+
+À mesure qu’il avançait dans son récit, les convictions de M. Patrigent s’affermissaient.
+
+— Évidemment, murmura-t-il, ce jeune homme est coupable.
+
+Fanferlot ne releva pas cette réflexion. Cette opinion n’était pas la sienne, mais il était ravi de cette idée que le juge faisait fausse route, se disant qu’il n’en aurait que plus de gloire à saisir le vrai coupable. Le fâcheux est qu’il ne savait encore comment arriver à ce beau résultat.
+
+Tous les renseignements recueillis, le juge congédia son agent en lui donnant diverses missions et en lui assignant rendez-vous pour le lendemain.
+
+— Surtout, dit-il en finissant, ne perdez pas de vue la fille Gypsy; elle doit savoir où est l’argent et peut nous mettre sur la trace.
+
+Fanferlot eut un sourire malin.
+
+— Monsieur le juge peut être tranquille, dit-il; la dame est en bonnes mains.
+
+Resté seul, et bien que la soirée fût avancée, M. Patrigent prit encore bon nombre de mesures qui devaient faire affluer chez lui les dépositions.
+
+* * *
+
+Cette affaire s’était absolument emparée de son esprit, et l’irritait et l’attirait tout ensemble. Il lui semblait y découvrir certains côtés obscurs et mystérieux qu’il s’était juré de pénétrer.
+
+Le lendemain, bien avant son heure habituelle, il était à son cabinet. Il entendit ce jour-là M<sup>me</sup> Gypsy, fit revenir Cavaillon et envoya chercher M. Fauvel. Et cette activité, il la déploya les jours suivants.
+
+Seuls, deux témoins cités firent défaut.
+
+Le premier était le garçon de bureau envoyé par Prosper à la Banque, il était gravement malade d’une chute.
+
+Le second était M. Raoul de Lagors.
+
+Mais leur absence n’empêchait pas le dossier de Prosper de grossir, et le lundi suivant, c’est-à-dire cinq jours après le vol, M. Patrigent croyait avoir entre les mains assez de preuves morales pour écraser son prévenu.
+
+
+## V
+
+Pendant que sa vie entière était l’objet des plus minutieuses investigations, Prosper était en prison, au secret.
+
+Les deux premières journées ne lui avaient pas paru trop longues.
+
+On lui avait, sur ses instances, donné quelques feuilles de papier, numérotées, dont il devait rendre compte, et il écrivait avec une sorte de rage des plans de défense et des mémoires justificatifs.
+
+Le troisième jour, il commença à s’inquiéter de ne voir personne que les condamnés employés au service des « secrets » et le geôlier chargé de lui apporter ses repas.
+
+— Est-ce qu’on ne va pas m’interroger de nouveau? demandait-il chaque fois.
+
+* * *
