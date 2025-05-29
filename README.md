@@ -10,7 +10,7 @@ __Cinquante__ pages sur _quatre cent quatre-vingt-sept_.
 - [x] Chapitre I
 - [x] Chapitre II
 - [x] Chapitre III
-- [ ] Chapitre IV
+- [x] Chapitre IV
 - [ ] Chapitre V
 - [ ] Chapitre VI
 - [ ] Chapitre VII
