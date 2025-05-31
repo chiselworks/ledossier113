@@ -2445,7 +2445,7 @@ L’effet n’en était pas moins produit, et en sortant M. Patrigent disait à 
 
 ## VI
 
-L’hôtel du Grand-Archange, asile de M<sup>me</sup> Gypsy, est le plus magnifique du quai Saint-Michel.
+L’hôtel du _Grand-Archange_, asile de M<sup>me</sup> Gypsy, est le plus magnifique du quai Saint-Michel.
 
 Quand on paye d’avance et « recta » sa quinzaine, on y est considéré.
 
