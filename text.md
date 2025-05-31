@@ -1919,3 +1919,544 @@ Le troisième jour, il commença à s’inquiéter de ne voir personne que les c
 — Est-ce qu’on ne va pas m’interroger de nouveau? demandait-il chaque fois.
 
 * * *
+
+— Votre tour viendra, allez, répondait invariablement le geôlier.
+
+Et le temps passait, et le malheureux torturé par les angoisses du secret, qui brise les plus énergiques natures, tombait dans le plus sombre désespoir.
+
+— Suis-je donc ici pour toujours? s’écriait-il.
+
+Non, on ne l’oubliait pas, car le lundi matin, à une heure où les geôliers ne venaient jamais, il entendit grincer les verroux de la cellule.
+
+D’un bond il se dressa et courut vers la porte.
+
+Mais à la vue d’un homme à cheveux blancs debout sur le seuil, il fut comme foudroyé.
+
+— Mon père, balbutia-t-il, mon père!…
+
+— Oui, votre père…
+
+À la stupeur première de Prosper, un sentiment de joie immense avait succédé.
+
+C’est qu’un père, quoi qu’il arrive, est l’ami sur lequel on doit compter. Aux heures terribles, lorsque tout appui manque, on se souvient de cet homme sur lequel on s’appuyait étant enfant, et, alors même qu’il ne peut rien, sa présence rassure comme celle d’un protecteur tout puissant.
+
+Sans réfléchir, entraîné par un élan d’effusion attendrie, Prosper ouvrit les bras comme pour se jeter au cou de son père.
+
+M. Bertomy le repoussa durement.
+
+— Éloignez-vous, ordonna-t-il.
+
+Il s’avança alors dans la cellule, dont la porte se referma. Le père et le fils étaient seuls en présence. Prosper brisé, anéanti, M. Bertomy irrité, presque menacant.
+
+Repoussé par ce dernier ami, un père, le malheureux caissier parut se roidir contre une douleur atroce.
+
+— Vous aussi, s’écria-t-il, vous!… vous me croyez coupable.
+
+— Épargnez-vous une comédie honteuse, interrompit M. Bertomy, je sais tout.
+
+— Mais je suis innocent, mon père, je vous le jure par la mémoire sacrée de ma mère.
+
+* * *
+
+— Malheureux!… s’écria M. Bertomy, ne blasphémez pas!…
+
+Un irrésistible attendrissement le gagna, et c’est d’une voix faible, presque inintelligible qu’il ajouta:
+
+— Votre mère est morte, Prosper, et je ne savais pas qu’un jour viendrait où je bénirais Dieu de me l’avoir enlevée. Votre crime l’eût tuée!
+
+Il y eut un long silence; enfin Prosper reprit:
+
+— Vous m’accablez, mon père, et cela au moment où j’ai besoin de tout mon courage, au moment où je suis victime de la plus odieuse machination.
+
+— Victime! fit M. Bertomy, victime!… C’est-à-dire que vous essayez de flétrir de vos insinuations l’homme honorable et bon qui a pris soin de vous, qui vous a accablé de bienfaits, qui vous avait assuré une position brillante, qui vous préparait un avenir inespéré. C’est assez de l’avoir volé, ne le calomniez pas.
+
+— Par pitié! mon père, laissez-moi vous dire…
+
+— Quoi! vous allez nier peut-être les bontés de votre patron? Vous étiez cependant si sûr de son affection, qu’un jour vous m’avez écrit, me disant de me préparer à faire le voyage de Paris pour demander à M. Fauvel la main de sa nièce. Était-ce donc un mensonge?…
+
+— Non, répondit Prosper d’une voix étouffée, non…
+
+— Il y a un an de cela; vous aimiez Mlle Madeleine, alors, du moins vous me l’écriviez…
+
+— Mais je l’aime, mon père, plus que jamais; je n’ai jamais cessé de l’aimer.
+
+M. Bertomy eut un geste de méprisante pitié:
+
+— Vraiment! s’écria-t-il. Et la pensée de la chaste et pure jeune fille que vous aimiez ne vous arrêtait pas au seuil de la débauche. Vous l’aimiez!… Comment donc osiez-vous, sans rougir, vous présenter devant elle en quittant les flétrissantes compagnies qui étaient les vôtres?
+
+— Au nom du ciel! laissez-moi vous expliquer par quelle fatalité Madeleine…
+
+— Assez, monsieur, assez. Je sais tout, je vous l’ai dit.
+
+* * *
+
+J’ai vu votre patron hier. Ce matin, j’ai vu votre juge, et c’est à sa bonté que je dois d’avoir pu pénétrer jusqu’à vous. Savez-vous que j’ai dû, moi, me laisser fouiller, déshabiller presque, pour entrer ici. On pensait que je vous apportais une arme.
+
+Prosper n’essayait plus de lutter. Il s’était laissé tomber, désespéré, sur le tabouret de sa prison.
+
+— J’ai vu votre appartement et j’ai compris votre crime. J’ai vu des tentures de soie à toutes les portes et des tableaux à cadres dorés le long de tous les murs. Chez mon père, les murs étaient blanchis à la chaux, et il n’y avait qu’un fauteuil dans la maison, celui de ma mère. Notre luxe, c’était notre probité. Vous êtes le premier de la famille qui ayez eu des tapis d’Aubusson; il est vrai que vous êtes le premier voleur qui se soit trouvé dans notre famille.
+
+À cette dernière insulte, le sang afflua aux joues de Prosper; cependant il ne bougea pas.
+
+— Mais il faut du luxe maintenant, poursuivait M. Bertomy, s’animant et s’exaltant au bruit de ses paroles; il faut du luxe à tout prix. On veut l’opulence insolente et le faste du parvenu avant d’être parvenu. On entretient des maîtresses, qui portent des mules de satin doublées de cygne, comme celles que j’ai vues au pied de votre lit, et on a des domestiques en livrée. Et on vole! Et les banquiers en sont venus à n’oser plus confier à personne la clé de leur caisse. Et tous les matins, quelque vol inattendu couvre de boue des familles honorables…
+
+M. Bertomy s’arrêta brusquement.; il venait de s’apercevoir que son fils paraissait hors d’état de l’entendre.
+
+— Brisons là, reprit-il, je ne suis pas venu ici pour vous faire des reproches, je suis venu pour sauver, s’il se peut, quelque chose de notre honneur, pour empêcher qu’on imprime notre nom dans les journaux judiciaires, parmi les noms des voleurs et des assassins. Levez-vous et écoutez-moi.
+
+À la voix impérieuse de son père, Prosper se dressa
+
+* * *
+
+tout d’une pièce. Tant de coups successifs le réduisaient à cet état d’insensibilité farouche du misérable qui n’a plus rien à redouter.
+
+— Avant tout, commença M. Bertomy, combien vous reste-t-il encore des trois cent cinquante mille francs que vous avez volés?
+
+— Encore une fois, mon père, répondit l’infortuné avec un accent d’affreuse résignation, encore une fois, je suis innocent.
+
+— Soit, je m’attendais à cette réponse. Ce sera donc notre famille qui réparera le préjudice causé par vous à votre patron.
+
+— Comment! que voulez-vous dire?
+
+— Le jour où il a appris votre crime, votre beau-frère est venu me rapporter la dot de votre sœur: soixante-dix mille francs. J’ai pu réunir de mon côté cent quarante mille francs. C’est en tout deux cent dix mille francs que j’ai là sur moi, et je vais les aller porter à M. Fauvel.
+
+Cette menace tira Prosper de son anéantissement.
+
+— Vous ne ferez pas cela! s’écria-t-il avec une violence mal contenue.
+
+— Je le ferai avant la fin de la journée. Pour le reste de la somme M. Fauvel m’accordera du temps. Ma pension de retraite est de quinze cents francs, je puis vivre avec cinq cents, je suis encore assez fort pour remplir un emploi, de son côté, votre beau-frère…
+
+M. Bertomy s’arrêta court, épouvanté de l’expression de la physionomie, de son fils. Une colère si furieuse qu’elle tournait à la folie, contractait ses traits; ses yeux, tout à l’heure éteints, lançaient des éclairs.
+
+— Vous n’avez pas le droit, mon père, s’écria-t-il, non, vous n’avez pas le droit d’agir ainsi. Libre à vous de refuser de me croire; il vous est interdit de tenter une démarche qui serait un aveu et me perdrait. Qui vous assure que je suis coupable? Quoi? lorsque la justice hésite, vous, mon père, vous n’hésitez pas, et, plus im-
+
+* * *
+
+pitoyable que la justice, vous me condamnez sans m’entendre.
+
+— Je remplirai mon devoir!
+
+— C’est-à-dire que je suis au bord de l’abîme et que vous allez m’y précipiter! Est-ce là ce que vous appelez votre devoir? Quoi! entre des étrangers qui m’accusent et moi qui vous crie que je suis innocent, vous ne balancez pas? Pourquoi? Est-ce parce que je suis votre fils? Notre honneur est en péril, c’est vrai; raison de plus pour me soutenir, pour m’aider à le défendre et à le sauver.
+
+Prosper avait su trouver de ces accents qui font pénétrer le doute au plus profond des consciences et ébranlent les plus solides convictions. M. Bertomy était ému.
+
+— Cependant, murmura-t-il, tout vous accuse.
+
+— Ah! mon père! c’est que vous ne savez pas qu’un jour j’ai dû fuir Madeleine; il le fallait. J’étais désespéré, j’ai voulu m’étourdir. J’ai cherché l’oubli, j’ai trouvé le dégoût et la honte. Ô Madeleine!…
+
+Il s’attendrissait; mais bientôt il reprit avec une violence croissante:
+
+— Tout est contre moi, peu importe! je saurai me justifier ou périr à la tâche. La justice humaine est sujette à l’erreur; innocent, je puis être condamné; soit, je subirai ma peine; mais on sort du bagne…
+
+— Malheureux, que dites-vous?…
+
+— Je dis, mon père, que je suis maintenant un autre homme. Ma vie a un but, désormais, la vengeance. Je suis victime d’une machination infâme. Tant que j’aurai une goutte de sang dans les veines, j’en poursuivrai l’auteur. Et je le trouverai, il faudra bien qu’il expie mes tortures et mes angoisses. C’est de la maison Fauvel que part le coup, c’est là qu’il faut chercher.
+
+— Prenez garde! fit M. Bertomy, la colère vous égare!…
+
+— Oui, je vous comprends, vous allez me vanter la probité de M. André Fauvel; vous allez me dire que toutes les vertus se sont réfugiées au sein de cette fa-
+
+* * *
+
+mille patriarcale. Qu’en savez-vous? Serait-ce la première fois que de beaux semblants d’honnêteté cacheraient les plus honteux secrets? Pourquoi Madeleine m’a-t-elle un jour, tout à coup, défendu de songer à elle? Pourquoi m’a-t-elle exilé, alors qu’elle souffre autant que moi de notre séparation, alors qu’elle m’aime encore, m’entendez-vous bien, qu’elle m’aime…, j’en suis sûr, j’en ai eu la preuve.
+
+L’heure accordée à M. Bertomy pour un entretien avec son fils était écoulée, le geôlier vint l’en avertir.
+
+Mille sentiments divers déchiraient le cœur de ce père infortuné, et lui ôtaient toute liberté de réflexion.
+
+Si Prosper disait vrai, pourtant! Quels ne seraient pas plus tard ses remords d’avoir ajouté à son malheur, déjà si grand! Et qui prouvait qu’il ne disait pas vrai?
+
+La voix de ce fils dont, si longtemps, il avait été fier, avait réveillé en lui toutes les tendresses paternelles violemment comprimées. Eh! fût-il coupable, et coupable d’un pire crime, en était-il moins son fils?
+
+Sa figure avait perdu toute sa sévérité, ses yeux étaient brillants de larmes près de s’échapper.
+
+Il voulait sortir grave et irrité comme il était entré: il n’eut pas ce courage cruel. Son cœur se brisa, il ouvrit les bras et pressa Prosper contre sa poitrine.
+
+— Ô mon fils! murmurait-il en se retirant, puisses-tu avoir dit vrai!…
+
+Prosper l’emportait, il avait presque convaincu son père de son innocence. Mais il n’eut pas le temps de se réjouir de cette victoire.
+
+La porte de la cellule s’ouvrit presque aussitôt après s’être refermée et la voix du geôlier, comme la première fois, cria:
+
+— Allons, monsieur, à l’instruction.
+
+Il fallait obéir quand même, il obéit.
+
+Mais sa démarche n’était plus celle des premiers jours, un changement complet venait de s’opérer en lui. Il allait le front haut, d’un pas assuré, et le feu de la résolution éclatait dans ses yeux.
+
+* * *
+
+Il connaissait le chemin, maintenant, et il marchait un peu en avant du garde de Paris qui l’accompagnait.
+
+Comme il traversait la petite salle basse où se tiennent les agents et les gardes de service, il croisa cet homme à lunettes d’or, qui, dans la salle du greffe, l’avait fixé si longtemps.
+
+— Du courage! M. Prosper Bertomy, lui dit ce personnage, si vous êtes innocent, on vous aidera.
+
+Prosper, surpris, s’arrêta; il cherchait une réponse, mais déjà l’homme était passé.
+
+— Quel est ce monsieur? demanda-t-il au garde qui le suivait.
+
+— Quoi! vous ne le connaissez pas! répondit le garde d’un air de surprise profonde, mais c’est M. Lecoq, de la sûreté.
+
+— Qui ça, Lecoq?
+
+— Vous pourriez bien dire: « Monsieur, » fit le garde de Paris offensé; ça ne vous écorcherait pas la bouche. M. Lecoq est un homme à qui on n’en conte pas, et qui sait tout ce qu’il veut savoir. Si vous l’aviez eu, au lieu de ce mielleux imbécile de Fanferlot, votre affaire serait depuis longtemps réglée. Avec lui, on ne languit pas. Mais il a l’air d’être de vos connaissances?
+
+— Je ne l’avais jamais vu avant le jour où on m’a amené ici.
+
+— Il ne faudrait pas en jurer, parce que, voyez-vous, personne ne peut se vanter de connaître la vraie figure de M. Lecoq. Il est ceci aujourd’hui et cela demain; tantôt brun, tantôt blond, parfois tout jeune, d’autres fois si vieux qu’on lui donnerait cent ans. Tenez, moi qui vous parle, il m’enfonce comme il veut. Je cause avec un inconnu, paf! c’est lui. N’importe qui peut être lui. On m’aurait dit que vous étiez lui, j’aurais répondu: C’est bien possible. Ah! il peut se vanter, celui-là, de faire tout ce qu’il veut de son corps.
+
+Le garde de Paris aurait longtemps encore poursuivi la légende de M. Lecoq, mais il arrivait avec son prévenu à la galerie des juges d’instructions.
+
+* * *
+
+Cette fois, Prosper n’eut pas à attendre sur l’humble banc de bois; le juge, au contraire, l’attendait.
+
+C’était M. Patrigent, en effet, qui, en profond observateur des mouvements de l’âme humaine, avait ménagé cette entrevue de M. Bertomy et de son fils.
+
+Il était sûr qu’entre le père, cet homme à probité raide, et le fils accusé de vol, une scène déchirante, lamentable, aurait lieu, et il comptait que cette scène briserait Prosper.
+
+Il s’était dit qu’il manderait aussitôt près de lui le prévenu, qu’il lui arriverait les nerfs vibrants d’émotions terribles, et qu’il arracherait la vérité à son trouble et à son désespoir.
+
+Il ne fut donc pas médiocrement surpris de l’attidude du caissier, attitude résolue sans roideur, fière et assurée, sans impertinence ni défi.
+
+— Eh bien! lui demanda-t-il tout d’abord, avez-vous réfléchi?
+
+— N’étant pas coupable, monsieur, je n’avais pas à réfléchir.
+
+— Ah! fit le juge, la prison n’a pas été pour vous bonne conseillère. Vous avez oublié qu’il faut surtout sincérité et repentir à qui veut mériter l’indulgence des juges.
+
+— Je n’ai besoin, monsieur, ni d’indulgence ni de grâce.
+
+M. Patrigent ne put retenir un geste de dépit. Il se tut un moment, puis, tout à coup:
+
+— Que me répondriez-vous, fit-il, si je vous disais ce que sont devenus les 350,000 francs?
+
+Prosper secoua tristement la tête.
+
+— Si on le savait, répondit-il simplement, je serais en liberté et non pas ici.
+
+Le vulgaire moyen employé par le juge d’instruction réussit fort souvent. Mais ici avec un prévenu si maître de soi, il n’avait guère de chances de succès. Cependant il l’avait tenté à tout hasard.
+
+* * *
+
+Ainsi reprit-il, vous vous en tenez à votre premier système. Vous persistez à accuser votre patron.
+
+— Lui, ou tout autre.
+
+— Pardon!… lui seul, puisque seul il avait le mot. Avait-il, à se voler lui-même, un intérêt quelconque?
+
+— J’ai cherché, monsieur, je ne lui en vois pas.
+
+— Eh bien! prononça sévèrement le juge, je vais vous dire quel intérêt vous aviez, vous, à le voler.
+
+M. Patrigent parlait en homme sûr de son fait, mais son assurance n’était qu’apparente.
+
+Il s’était préparé à frapper d’un dernier coup de massue un prévenu qui lui arriverait pantelant, il était dérouté de le voir si calme et si déterminé en sa résistance.
+
+— Voulez-vous me dire, commença-t-il d’un ton qui se ressentait de son dépit, pouvez-vous me dire, combien vous avez dépensé depuis un an?
+
+Prosper n’eut besoin ni de réflexions, ni de calculs.
+
+— Oui, monsieur, répondit-il sans hésiter. Les circonstances étaient telles que j’ai apporté le plus grand ordre à mon désordre; j’ai dépensé environ 50,000 fr.
+
+— Et où les avez-vous pris?
+
+— D’abord, monsieur, je possédais 12,000 francs, provenant de la succession de ma mère. J’ai touché chez M. Fauvel, pour mes appointements et ma part d’intérêt dans les bénéfices, 14,000 francs. J’ai gagné à la Bourse environ 8,000 francs. J’ai emprunté le reste, je le dois, mais je puis le payer ayant chez M. Fauvel 15,000 francs à moi.
+
+Le compte était net, précis, aisé à vérifier, il devait être exact.
+
+— Qui donc vous prêtait ainsi de l’argent?
+
+— M. Raoul de Lagors.
+
+Ce témoin, parti pour un voyage le jour même du vol, n’avait pu être entendu. Force était à M. Patrigent de s’en rapporter, au moins pour le moment, à la déclaration de Prosper.
+
+— Soit, dit-il, je n’insisterai pas sur ce point. Appre-
+
+* * *
+
+nez-moi pourquoi, malgré les ordres formels de votre patron, vous avez fait prendre l’argent à la Banque la veille et non le jour même du remboursement?
+
+— C’est que, monsieur, M. de Clameran m’avait fait savoir qu’il lui serait agréable, utile même, d’avoir ses fonds dès le matin; il en témoignera, si vous le faites appeler. D’un autre côté, je présumais que j’arriverais tard à mon bureau.
+
+— Ce M. de Clameran est donc de vos amis?
+
+— Aucunement; j’ai même ressenti pour lui une sorte de répulsion que rien ne justifie, je le déclare; mais il est fort lié avec mon ami M. de Lagors.
+
+Pendant le temps assez long, indispensable à Sigault, le greffier, pour écrire les réponses du prévenu, M. Patrigent se creusait la tête. Il se demandait quelle scène avait pu avoir lieu entre M. Bertomy et son fils, pour transformer ainsi Prosper.
+
+— Autre chose, reprit le juge d’instruction; comment avez-vous passé votre soirée, la veille du crime!
+
+— Au sortir de mon bureau, à cinq heures, j’ai pris le train de Saint-Germain et je me suis rendu au Vésinet, à la maison de campagne de M. Raoul de Lagors. Je lui portais 1,500 francs qu’il m’avait demandés et qu’en son absence j’ai laissé à son domestique.
+
+— Vous a-t-on dit que M. de Lagors dût entreprendre un voyage.
+
+— Non, monsieur, j’ignore même s’il est absent de Paris.
+
+— Fort bien. Et en sortant de chez votre ami, qu’avez-vous fait?
+
+— Je suis revenu à Paris, et j’ai dîné dans un des restaurants du boulevard avec un de mes amis.
+
+— Et ensuite?
+
+Prosper hésita.
+
+— Vous vous taisez, reprit M. Patrigent; alors je vais vous dire l’emploi de votre temps. Vous êtes rentré chez vous, rue Chaptal, vous vous êtes habillé, et vous vous êtes rendu à une soirée que donnait une de ces femmes
+
+* * *
+
+qui s’intitulent artistes dramatiques et qui déshonorent les théâtres sur lesquels elles se montrent, qui ont cent écus d’appointements et qui ont des chevaux et des voitures, — chez la fille Wilson.
+
+— C’est vrai, monsieur.
+
+— On joue gros jeu chez la fille Wilson?
+
+— Quelquefois.
+
+— Du reste, vous avez l’habitude de ces sortes de réunions. Ne vous êtes-vous pas trouvé mêlé à une aventure scandaleuse qui avait eu lieu chez une femme de ce genre, nommée Crescenzi?
+
+— C’est-à-dire que j’ai été appelé à déposer, ayant été témoin d’un vol.
+
+— En effet, le jeu mène au vol. Et chez la fille Wilson, n’avez-vous pas joué au baccarat tournant, et n’avez-vous pas perdu 1,800 francs?
+
+— Pardon, monsieur, 1,100 seulement.
+
+— Soit. Vous aviez payé dans la matinée un billet de mille francs?
+
+— Oui, monsieur.
+
+De plus, il restait 500 francs dans votre secrétaire et quand on vous a arrêté vous aviez dans votre porte-monnaie 400 francs. Soit en tout, en vingt-quatre heures, quatre mille cinq cents francs…
+
+Prosper était non pas décontenancé, mais stupéfait. Ne se doutant pas des puissants moyens d’investigations dont dispose le parquet de Paris, il se demandait comment en si peu de temps le juge avait pu être si exactement renseigné.
+
+— Vos informations sont exactes, monsieur, dit-il enfin.
+
+— D’où vous venait donc cet argent, alors que la veille même vous étiez assez à court pour remettre le paiement d’une facture peu importante?
+
+— Monsieur, ce jour que vous dites, j’ai vendu, par l’intermédiaire d’un agent de change, quelques titres que j’avais, moyennant 3,000 francs; j’ai de plus pris à ma caisse, en avance sur mes appointements, 2,000 francs. Je n’ai rien à dissimuler.
+
+* * *
+
+Décidément, le prévenu avait réponse à tout. M. Patrigent dut chercher un autre point d’attaque.
+
+— Si vous n’aviez rien à cacher, dit-il, pourquoi ce billet — il le montrait — jeté mystérieusement à un de vos collègues?
+
+Le coup, cette fois, porta. Les yeux de Prosper vacillaient sous le regard du juge d’instruction.
+
+— Je pensais, balbutia-t-il, je voulais…
+
+— Vous vouliez cacher votre maîtresse.
+
+— Eh bien! oui, monsieur, c’est vrai. Je savais que lorsqu’un homme est, comme je le suis, accusé d’un crime, toutes les faiblesses, toutes les défaillances de sa vie deviennent des charges terribles.
+
+— C’est-à-dire que vous avez compris que la présence d’une femme chez vous donnait un poids énorme à l’accusation. Car vous vivez avec une femme?…
+
+— Je suis jeune, monsieur…
+
+— Assez!… la justice peut pardonner à des égarements passagers, elle ne saurait excuser le scandale de ces unions, qui sont un défi permanent jeté à la morale publique. L’homme qui se respecte assez peu pour vivre avec une femme perdue, n’élève pas cette femme jusqu’à lui, il descend jusqu’à elle.
+
+— Monsieur!…
+
+— Vous savez, j’imagine, quelle est la femme à laquelle vous laissiez donner le nom honorable porté par votre mère?
+
+— M<sup>me</sup> Gypsy, monsieur, était institutrice lorsque je l’ai connue; elle est née à Porto et est venue en France à la suite d’un famille portugaise.
+
+Le juge d’instruction haussa les épaules.
+
+— Elle ne s’appelle pas Gypsy, dit-il, elle n’a jamais été institutrice, elle n’est pas Portugaise.
+
+Prosper voulut protester, mais M. Patrigent lui imposa silence. Il cherchait parmi toutes les pièces contenues dans un énorme dossier placé devant lui.
+
+— Ah! voilà, fit-il, écoutez. Palmyre Chocareille, née à Paris en 1840, fille de Chocareille (Jacques), em-
+
+* * *
+
+ployé aux pompes funèbres, et de Caroline Piedlent, sa femme.
+
+Le prévenu eut un geste d’impatience. Il ne comprenait pas que le juge en ce moment tenait surtout à lui prouver que rien n’échappe à la police.
+
+— Palmyre Chocareille, continua-t-il, a été mise à douze ans en apprentissage chez un fabricant de chaussures, et elle y est restée jusqu’à seize ans. Les renseignements font défaut pendant une année. À dix-sept ans, elle entre en qualité de domestique chez les époux Dombas, épiciers, rue Saint-Denis, et y reste trois mois. Elle traverse cette même année, — 1857 — huit ou dix places. En 1858, lasse du service, elle entre comme demoiselle chez un marchand d’éventails du passage Choiseul.
+
+Tout en lisant, le juge d’instruction observait Prosper, cherchant sur son visage l’effet produit par ses révélations.
+
+— À la fin de 1858, poursuivit-il, la fille Chocareille entre au service d’une dame Nunès et part avec elle pour Lisbonne. Combien de temps reste-t-elle en Portugal? qu’y fait-elle? Mes rapports sont muets à cet égard. Ce qui est certain, c’est qu’en 1861 elle était de retour à Paris, et y était condamnée par le tribunal de la Seine à trois mois de prison pour coups et blessures. Ah! elle rapportait de Portugal le nom de Nina Gypsy.
+
+— Mais, monsieur, essaya Prosper, je vous assure…
+
+— Oui, je comprends; cette histoire est moins romanesque, sans doute, que celle qui vous a été contée; elle a le mérite d’être vraie. Nous perdons Palmyre Chocareille, dite Gypsy, à sa sortie de prison. Mais nous la retrouvons six mois plus tard, ayant fait connaissance d’un commis voyageur, nommé Caldas, qui s’était épris de sa beauté, et lui avait meublé un appartement près de la Bastille. Elle vivait avec lui, et portait son nom, lorsqu’elle l’a quitté pour vous suivre. Avez-vous ouï parler de ce Caldas.
+
+— Jamais, monsieur…
+
+— Cet infortuné aimait tant cette créature, qu’à la
+
+* * *
+
+nouvelle de son abandon, il faillit devenir fou de douleur. C’était, paraît-il, un homme énergique, et il avait juré publiquement qu’il tuerait celui qui lui avait enlevé sa maîtresse. On a lieu de croire que depuis il s’est suicidé. Ce qui est prouvé, c’est que peu après le départ de la fille Chocareille, il a vendu les meubles de l’appartement et a disparu. Tous les efforts faits pour retrouver ses traces ont été vains.
+
+Le juge d’instruction s’arrêta un moment comme pour bien donner à Prosper le loisir de la réflexion, et c’est en scandant tous ses mots qu’il ajouta:
+
+— Voilà la femme dont vous aviez fait votre compagne, la femme pour laquelle vous avez volé!…
+
+Cette fois encore, mal servi par les renseignements incomplets de Fanferlot, M. Patrigent faisait fausse route.
+
+Il avait espéré arracher un cri à la passion de Prosper, blessée au vif; point, il restait impassible. De tout ce qu’avait dit le juge, il n’avait retenu que le nom de ce pauvre commis voyageur qui s’était suicidé, Caldas.
+
+— Avouez au moins, insista M. Patrigent, que cette fille a causé votre perte.
+
+— Je ne saurais avouer cela, monsieur, car cela n’est pas.
+
+— Elle a cependant été l’occasion de vos plus fortes dépenses. Et tenez — le juge tira une facture du dossier — dans le seul mois de décembre dernier, vous avez payé pour elle à un couturier, au sieur Van-Klopen: deux robes de ville, 900 fr.; une robe de soirée, 700 fr.; un domino garni de dentelles, 400 francs.
+
+— Tout cet argent a été dépensé par moi librement, froidement, sans entraînement.
+
+— M. Patrigent haussa les épaules.
+
+— Vous niez l’évidence, fit-il. Soutiendrez-vous aussi que ce n’est pas pour cette fille que vous avez renoncé à des habitudes de plusieurs années et cessé de passer vos soirées chez votre patron?
+
+* * *
+
+— Ce n’est pas pour elle, monsieur, je vous l’affirme.
+
+— Alors, pourquoi, tout à coup, ne plus paraître dans une maison où vous sembliez faire votre cour à une jeune fille dont on vous eut accordé la main, M. Fauvel me l’a dit, vous l’avez écrit à votre père.
+
+— J’ai eu des raisons que je ne puis dire, répondit Prosper dont la voix trembla.
+
+— Le juge respira. Enfin, il trouvait un défaut à l’armure du prévenu.
+
+— Serait-ce Mlle Madeleine qui vous aurait éloigné? demanda-t-il.
+
+Prosper garda le silence. Il était visiblement très-agité.
+
+— Parlez, insista M. Patrigent, je dois vous prévenir que cette circonstance est des plus graves aux yeux de la prévention.
+
+— Quel que soit le péril du silence, je dois me taire
+
+— Prenez garde, fit le juge, la justice ne saurait se payer de scrupules de conscience.
+
+M. Patrigent se tut. Il attendait une réponse, elle ne vint pas.
+
+— Vous vous obstinez, reprit-il, eh bien! poursuivons. Vous avez, depuis un an, dépensé, dites-vous 50,000 fr. La prévention dit 70,000; mais prenons votre chiffre. Vos ressources sont à bout, votre crédit est épuisé, continuer votre genre de vie est impossible; que comptiez-vous faire?
+
+— Je n’avais aucun projet, monsieur, je m’étais dit ça ira tant que ça pourra, et après…
+
+— Et après: je puiserai à la caisse, n’est-ce pas?
+
+— Eh! monsieur, s’écria Prosper, je ne serais pas ici, si j’étais coupable! Je n’aurais pas été si sot de retourner à mon bureau, j’aurais fui…
+
+M. Patrigent ne put dissimuler un sourire de satisfaction.
+
+— Enfin! dit-il, voilà l’argument que j’attendais. C’est précisément en ne prenant pas la fuite, en restant, pour faire tête à l’orage, que vous prouvez votre intelligence.
+
+* * *
+
+Plusieurs procès récents ont appris aux caissiers infidèles que la fuite à l’étranger est un pitoyable moyen. Le chemin de fer va vite, mais le télégraphe électrique va plus vite encore. La Belgique est à deux pas. À Londres, on retrouve un voleur français en quarante-huit heures par abonnement. L’Amérique même n’est plus un refuge assuré. Prudent et sage, vous êtes resté en vous disant: « Je puis m’en tirer, et, au pis aller, si je succombe, après trois ou cinq ans de réclusion, je retrouverai une fortune. » Bien des gens sacrifieraient cinq ans de leur vie pour 350,000 francs.
+
+— Mais, monsieur, si j’avais fait le calcul que vous dites, je ne me serais pas contenté de 350,000 francs; j’aurais attendu une occasion et volé un million.
+
+— Oh! fit M. Patrigent, on ne peut pas toujours attendre.
+
+Prosper réfléchissait, et la contraction de ses traits disait l’effort de sa pensée.
+
+— Monsieur, dit-il enfin, il est un détail que j’ai oublié dans mon trouble, qui me revient à la mémoire et qui peut aider à ma justification.
+
+— Expliquez-vous.
+
+— Le garçon de bureau qui est allé chercher les fonds à la Banque me les a apportés, lorsque je n’attendais plus que son retour pour partir. Je suis sûr, oui, je suis certain d’avoir serré les billets de banque devant lui. Oh! s’il l’avait remarqué! Dans tous les cas, j’ai quitté mon bureau avant lui.
+
+— C’est bien, fit M. Patrigent, ce garçon sera entendu. On va maintenant vous reconduire à votre cellule, et, croyez-moi, réfléchissez.
+
+Si M. Patrigent congédiait ainsi brusquement son prévenu, c’est que ce fait nouveau, qui tout à coup se révélait, l’inquiétait. La déposition du garçon de bureau allait avoir une importance énorme. Que penser, si cet homme venait à affirmer qu’il avait vu le caissier renfermer les billets et sortir? Était-il impossible qu’il eût été d’avance gagné par Prosper?
+
+* * *
+
+Dès que le prévenu fut sorti:
+
+— Dites-moi, Sigault, demanda-t-il à son greffier, ce garçon de bureau dont parle le prévenu, cet Antonin, est bien celui qui n’est pas venu déposer et qui a été excusé sur un certificat du médecin constatant sa maladie?
+
+— Précisément, monsieur.
+
+— Où demeure-t-il?
+
+— Monsieur, répondit Sigault, il n’est plus chez lui, m’a dit Fanferlot. Sa blessure étant grave et devant le retenir longtemps sur le lit, il s’est fait porter à l’hospice Dubois.
+
+— Eh bien! je vais aller l’interroger aujourd’hui même, à l’instant. Prenez tout ce qu’il vous faut et envoyez chercher une voiture.
+
+Il y a loin du Palais de Justice à la maison Dubois, mais le cocher de M. Patrigent, aiguillonné par la promesse d’un magnifique pourboire, sut donner à ses maigres rosses le train de chevaux de sang.
+
+Antonin serait-il en état de répondre? Là était la question.
+
+Mais le directeur de la maison de santé eut promptement rassuré le juge d’instruction à cet égard.
+
+Le malheureux garçon de bureau s’était, en tombant, brisé le genou; il souffrait horriblement, mais il avait toute la lucidité de son esprit.
+
+— Puisqu’il en est ainsi, monsieur, dit le juge, je vous demanderai de me conduire près de cet homme, que je dois interroger; mais il faut, si faire se peut, que personne ne soit à portée d’entendre sa déposition.
+
+— Oh! personne n’entrera, répondit le directeur; il est dans une chambre à quatre lits, c’est vrai, mais il y est seul.
+
+— Très-bien! Allons, alors.
+
+En voyant entrer le juge d’instruction, suivi d’un grand jeune homme maigre portant une serviette d’avocat, Antonin, qui sait son monde, devina ce dont il s’agissait.
+
+* * *
+
+— Ah! dit-il, monsieur vient pour l’affaire de M. Bertomy.
+
+— Précisément.
+
+M. Patrigent resta debout près du lit du malade, pendant que Sigault le greffier s’établissait avec ses papiers sur une petite table.
+
+Lorsque le garçon de bureau eut répondu à toutes les questions d’usage, déclaré qu’il se nommait Antonin Poche, âgé de quarante ans, né à Cadaujac (Gironde), célibataire.
+
+— Voyons, mon ami, fit le juge, vous sentez-vous bien en état de me répondre?
+
+— Parfaitement, monsieur.
+
+— C’est vous qui êtes allé, le 27 février, chercher à la Banque les 350,000 francs qui ont été volés?
+
+— Oui, monsieur.
+
+— À quelle heure êtes-vous rentré?
+
+— Assez tard; j’avais eu affaire au Crédit mobilier en sortant de la Banque; il devait bien être cinq heures lorsque je suis revenu à la maison.
+
+— Vous rappelez-vous ce qu’a fait M. Bertomy quand vous lui avez eu remis la somme? Ne vous pressez pas de répondre, rassemblez bien vos souvenirs.
+
+— Attendez… d’abord il a compté les billets et il en a fait quatre paquets qu’il a serrés dans la caisse, et ensuite… il a fermé la caisse, et après… il me semble bien… mais oui, je ne me trompe pas, oui! il est sorti.
+
+Il prononça ces derniers mots si vivement, qu’oubliant son genou il fit un mouvement qui lui arracha un cri.
+
+— Vous êtes bien sûr de ce que vous dites là? demanda le juge d’instruction.
+
+Le ton solennel de M. Patrigent parut épouvanter Antonin.
+
+— Sûr!… répondit-il avec une hésitation marquée, vous comprenez… je parierais ma tête à couper, mais je n’en suis pas sûr autrement.
+
+Il fut impossible de l’amener à préciser sa déposition.
+
+* * *
+
+Il avait eu peur, il se voyait déjà compromis, pour un rien il se serait rétracté.
+
+L’effet n’en était pas moins produit, et en sortant M. Patrigent disait à son greffier:
+
+— C’est grave! très-grave!
+
+
+## VI
+
+L’hôtel du Grand-Archange, asile de M<sup>me</sup> Gypsy, est le plus magnifique du quai Saint-Michel.
+
+Quand on paye d’avance et « recta » sa quinzaine, on y est considéré.
+
+Cette M<sup>me</sup> Alexandre, qui a été une belle femme, est maintenant une femme puissante, terriblement sanglée dans ses corsets, toujours trop bien mise, aimant les chaînes d’or roulant en cascades sur les pentes de sa robuste poitrine.
+
+Elle a l’œil vif encore, et la dent blanche; mais, hélas! le nez rouge. C’est que, de tous ses goûts, et Dieu sait si elle en a eu, en sa vie, et de toutes sortes, un seul a survécu. Elle aime la bonne chère, largement arrosée.
+
+Pardon! elle adore aussi son mari, et à l’heure où M. Patrigent revenait de la maison de santé, elle s’impatientait fort de ne pas voir son « petit homme » rentrer pour dîner. Elle allait même se mettre à table, quand le garçon de l’hôtel cria:
+
+— Voilà monsieur.
+
+Et Fanferlot en personne parut sur le seuil.
+
+Trois ans auparavant, Fanferlot tenait un petit bureau de renseignements clandestins; M<sup>me</sup> Alexandre, marchande à la toilette sans patente, eut besoin de faire surveiller quelques créances suspectes; de là leurs premières relations.
