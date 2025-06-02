@@ -1,25 +1,37 @@
-# LE DOSSIER N° 113
-PAR EMILE GABORIAU
+<h1 id="cover" style="text-align: center; font-weight: 100; border: none;">
+  <span style="font-size: .75em">LE</span><br>
+  <span style="font-size: 2em">DOSSIER</span><br>
+  <span style="font-size: .75em">N° 113</span><br>
+  <span style="font-size: .5em">PAR</span><br>
+  <span style="font-size: .75em">ÉMILE GABORIAU</span>
+</h1>
 
-PARIS
+<p align="center">
+  <img width="240px" src="./dentu.png" alt="E. DENTU"/>
+</p>
 
-E. DENTU, EDITEUR
-
-LIBRAIRE DE LA SOCIÉTÉ DES GENS DE LETTRES
-
-1867
-
-Tous droits réservés
+<p style="text-align: center;">
+  <span style="font-size: 1.25em">PARIS</span><br>
+  <span>E. DENTU, ÉDITEUR</span><br>
+  <span style="font-size: .75em">LIBRAIRE DE LA SOCIÉTÉ DES GENS DE LETTRES</span><br>
+  <span style="font-size: .5em">PALAIS-ROYAL, 17 ET 19, GALERIE D’ORLÉANS</span><br>
+  <span>—</span><br>
+  <span>1867</span><br>
+  <span style="font-size: .75em">Tous droits réservés</span>
+</p>
 
 * * *
 
-A MON AMI
-
-MAURICE DE LA MAIN
+<p style="text-align: center;">
+  <span>À MON AMI</span><br>
+  <span style="font-size: 1.75em">MAURICE DE LA MAIN</span>
+</p>
 
 * * *
 
-## I
+<h2 id="I" style="text-align: center; font-weight: 100; border: none; font-size: 2em;">
+  I
+</h2>
 
 On lisait dans tous les journaux du soir du mardi 28 février 186., le _fait divers_ suivant:
 
@@ -31,6 +43,10 @@ Quatre jours durant, Paris entier ne s’occupa que de ce vol.
 
 Puis, de graves événements survinrent, un acrobate se cassa la jambe au Cirque, une demoiselle débuta sur
 
+<p style="text-align: right" aria-hidden="true">
+  1
+</p>
+
 * * *
 
 un petit théâtre, et le fait divers du 28 février fut oublié.
@@ -41,7 +57,9 @@ Une somme de 350,000 francs avait été, il est vrai, soustraite chez M. André 
 
 Au surplus, voici les faits, tels qu’ils se trouvent relatés avec une exactitude méticuleuse aux procès-verbaux d’enquête.
 
-## II
+<h2 id="II" style="text-align: center; font-weight: 100; border: none; font-size: 2em;">
+  II
+</h2>
 
 La maison de banque André Fauvel, rue de Provence, n° 87, est très-importante, et, grâce à son nombreux personnel, a presque les apparences d’un ministère.
 
@@ -54,6 +72,10 @@ Une large porte vitrée donne accès dans un immense vestibule où stationnent d
 Les bureaux de la correspondance, du grand-livre et de la comptabilité générale sont à gauche.
 
 Au fond, on aperçoit une petite cour vitrée sur laquelle
+
+<p style="text-align: right" aria-hidden="true">
+  2
+</p>
 
 * * *
 
@@ -78,6 +100,10 @@ Aussi, chez M. Fauvel, comme partout, du reste, ferme-t-on la caisse avec un mot
 Ce mot, le chef de la maison et le caissier le connaissent seuls. Ils ont aussi chacun une clé.
 
 Avec un tel meuble, possédât-on plus de diamants
+
+<p style="text-align: right" aria-hidden="true">
+  3
+</p>
 
 * * *
 
@@ -108,6 +134,10 @@ Il y eut une certaine hésitation, mais un jeune employé nommé Cavaillon, qui 
 — Le patron est toujours sorti à cette heure, répondit-il.
 
 — Je repasserai donc, fit M. de Clameran.
+
+<p style="text-align: right" aria-hidden="true">
+  4
+</p>
 
 * * *
 
@@ -144,6 +174,10 @@ Il s’arrêta court. La porte de la caisse venait de s’ouvrir et le caissier 
 — Volé! balbutiait-il, on m’a volé!…
 
 La physionomie de Prosper, sa voix rauque, le trem-
+
+<p style="text-align: right" aria-hidden="true">
+  5
+</p>
 
 * * *
 
@@ -185,6 +219,10 @@ Puis réfléchissant:
 
 — Non, reprit-il d’un ton de découragement profond, non, ce n’est pas possible. Jamais, depuis cinq ans que je tiens la caisse, M. Fauvel ne l’a ouverte sans moi. Deux ou trois fois il a eu besoin de fonds, et il m’a at-
 
+<p style="text-align: right" aria-hidden="true">
+  6
+</p>
+
 * * *
 
 tendu ou envoyé chercher plutôt que d’y toucher en mon absence.
@@ -214,6 +252,10 @@ La voix de M. Fauvel rendit au caissier l’énergie factice des grandes crises;
 — Mais vous êtes fou s’écria M. Fauvel, vous rêvez!
 
 Ces quelques mots anéantissaient toute espérance, mais
+
+<p style="text-align: right" aria-hidden="true">
+  7
+</p>
 
 * * *
 
@@ -248,6 +290,10 @@ Le banquier eut un geste de menace, et on ne sait ce qui serait arrivé si tout 
 Un client voulait absolument entrer, malgré les protestations des garçons, et, en effet, il entra. C’était M. de Clameran.
 
 Tous les employés réunis dans le bureau se tenaient debout, immobiles, glacés; le silence était profond, solennel. Il était aisé de voir que quelque question terrible, question de vie ou de mort se débattait entre tous ces hommes.
+
+<p style="text-align: right" aria-hidden="true">
+  8
+</p>
 
 * * *
 
@@ -287,6 +333,10 @@ Aussitôt, tournant le dos au maître de forges, M. Fauvel revint à son caissie
 
 Prosper ne bougea pas.
 
+<p style="text-align: right" aria-hidden="true">
+  9
+</p>
+
 * * *
 
 — M’avez-vous entendu? répéta le banquier près d’éclater.
@@ -317,6 +367,10 @@ M. Fauvel avait trop d’expérience pour ne pas deviner l’impression produite
 
 Il sortit, monta jusqu’à son cabinet, et, au bout de cinq minutes, reparut tenant à la main une lettre et une liasse de titres.
 
+<p style="text-align: right" aria-hidden="true">
+  10
+</p>
+
 * * *
 
 — Vite, Couturier, dit-il à un de ses employés, prenez ma voiture qu’on attelle, et allez avec monsieur jusque chez M. de Rothschild. Vous remettrez la lettre et les titres que voici, et, en échange, on vous comptera 300,000 fr. que vous donnerez à monsieur.
@@ -343,6 +397,10 @@ Enfin, après un long silence, le banquier s’arrêta devant Prosper; il avait 
 
 Le caissier obéit sans mot dire, presque machinalement, et son patron le suivit, prenant bien soin de refermer la porte derrière lui.
 
+<p style="text-align: right" aria-hidden="true">
+  11
+</p>
+
 * * *
 
 Rien dans ce bureau n’annonçait le passage de malfaiteurs étrangers à la maison. Tout était en place; pas un papier n’avait été dérangé.
@@ -363,6 +421,10 @@ Jamais Prosper n’avait entendu son patron s’exprimer d’une voix si douce, 
 
 — Répondez, poursuivait M. Fauvel, n’ai-je pas toujours été pour vous comme un père? Dès le premier jour, ma maison vous a été ouverte; je voulais que ma famille fût la vôtre. Longtemps vous avez vécu comme mon fils, entre mes deux fils et ma nièce Madeleine. Mais vous vous êtes lassé de cette vie heureuse. Un jour, il y
 
+<p style="text-align: right" aria-hidden="true">
+  12
+</p>
+
 * * *
 
 a un an de cela, vous avez commencé à nous fuir, et depuis…
@@ -382,6 +444,10 @@ Les souvenirs de ce passé évoqué par le banquier se présentaient en foule à
 Prosper essaya un geste de protestation.
 
 — Oui, mon honneur, insista M. Fauvel, d’une voix que le ressentiment de l’humiliation essuyée rendait plus
+
+<p style="text-align: right" aria-hidden="true">
+  13
+</p>
 
 * * *
 
@@ -415,8 +481,9 @@ Le banquier était près de la porte, il l’ouvrit, et après un dernier regard
 
 — Anselme, priez monsieur le commissaire de police de prendre la peine de descendre.
 
-
-## III
+<h2 id="III" style="text-align: center; font-weight: 100; border: none; font-size: 2em;">
+  III
+</h2>
 
 S’il est un homme du monde que nul évènement ne doive émouvoir ni surprendre, toujours en garde contre les mensonges des apparences, capable de tout admettre et de tout s’expliquer, c’est à coup sûr un commissaire de police de Paris.
 
@@ -429,6 +496,10 @@ S’il ne méprise pas absolument l’espèce humaine, c’est que souvent, à c
 Tant de fois ses prévisions ont été trompées qu’il en est arrivé au scepticisme le plus complet. Il ne croit à rien, pas plus au mal qu’au bien absolu, pas plus à la vertu qu’au vice.
 
 Forcément, il en arrive à cette conclusion navrante,
+
+<p style="text-align: right" aria-hidden="true">
+  14
+</p>
 
 * * *
 
@@ -466,6 +537,10 @@ Seulement, devenu plus grave, il observait alternativement le caissier et M. Fau
 
 Prosper était toujours fort pâle et aussi abattu que pos-
 
+<p style="text-align: right" aria-hidden="true">
+  15
+</p>
+
 * * *
 
 sible; il était affaissé sur sa chaise et ses bras pendaient inertes le long de son corps.
@@ -499,6 +574,10 @@ Il n’y avait pas à se méprendre à l’intonation du commissaire de police; 
 Le banquier hésita un moment.
 
 — Je ne le crois pas, répondit-il enfin.
+
+<p style="text-align: right" aria-hidden="true">
+  16
+</p>
 
 * * *
 
@@ -537,6 +616,10 @@ Il tournait autour du bureau.
 — Oui, monsieur, répondit le banquier.
 
 Aussitôt; il entr’ouvrit la porte et appela:
+
+<p style="text-align: right" aria-hidden="true">
+  17
+</p>
 
 * * *
 
@@ -582,6 +665,10 @@ Anselme sorti, M. Fanferlot reprit ses recherches. Il avait ouvert la porte du p
 
 Le bureau particulier de M. André Fauvel est com-
 
+<p style="text-align: right" aria-hidden="true">
+  18
+</p>
+
 * * *
 
 posé de deux pièces: d’abord le salon d’attente, somptueusement décoré; puis le cabinet de travail ayant pour tous meubles un immense bureau, trois ou quatre fauteuils de cuir, et, de chaque côté de la cheminée, un secrétaire et un cartonnier.
@@ -610,6 +697,10 @@ Jamais, non jamais, il n’aurait cru que son patron réaliserait ses menaces. C
 
 Assis dans un fauteuil près de la cheminée, il s’abî-
 
+<p style="text-align: right" aria-hidden="true">
+  19
+</p>
+
 * * *
 
 mait dans les plus sombres réflexions, lorsque la porte de la chambre à coucher du banquier s’ouvrit.
@@ -635,6 +726,10 @@ Ils restèrent ainsi en présence, immobiles, oppressés; si émus que tous deux
 Enfin, Madeleine murmura d’une voix à peine intelligible:
 
 — Vous, Prosper, vous!
+
+<p style="text-align: right" aria-hidden="true">
+  20
+</p>
 
 * * *
 
@@ -666,6 +761,10 @@ Elle voulut insister; au lieu de commander, elle pria, mais la détermination de
 
 Tout en parlant, il la repoussait doucement, bien qu’elle résistât un peu, et il parvint à refermer la porte.
 
+<p style="text-align: right" aria-hidden="true">
+  21
+</p>
+
 * * *
 
 Il était temps, le commissaire de police et M. Fauvel rentraient. Ils avaient visité le salon d’attente, examiné le grand escalier et ils n’avaient pu rien entendre de ce qui se passait dans le cabinet.
@@ -691,6 +790,10 @@ Ainsi, dans la pensée de M. Fanferlot, le banquier s’était simplement volé 
 Mais cette conviction de l’agent de la sûreté ne devait guère, pour le moment du moins, servir Prosper.
 
 Fanferlot, l’ambitieux, l’homme qui veut arriver, qui
+
+<p style="text-align: right" aria-hidden="true">
+  22
+</p>
 
 * * *
 
@@ -722,6 +825,10 @@ Sous le coup, en apparence, d’une émotion pareille, M. Fauvel, Prosper et le 
 
 Fanferlot se retourna d’un air contrarié. Il se repro-
 
+<p style="text-align: right" aria-hidden="true">
+  23
+</p>
+
 * * *
 
 chait de n’avoir pas su dissimuler mieux ses impressions.
@@ -748,6 +855,10 @@ Cette égratignure — récente, on ne pouvait le nier — avait pour lui une si
 
 Résolu de démêler seul l’écheveau embrouillé de cette affaire, l’agent de la sûreté devait garder pour lui ses
 
+<p style="text-align: right" aria-hidden="true">
+  24
+</p>
+
 * * *
 
 conjectures, de même qu’il taisait l’entrevue surprise entre Madeleine et Prosper.
@@ -772,6 +883,10 @@ L’agent de la sûreté n’avait nul besoin de cet encouragement à une attent
 
 C’est pourquoi, entré dans le bureau sur les pas du caissier, il alla s’établir tout au fond, dans l’ombre, sur une banquette, parut chercher une position commode, se tourna, se retourna, bâilla à se démettre la mâchoire, et finalement ferma les yeux.
 
+<p style="text-align: right" aria-hidden="true">
+  25
+</p>
+
 * * *
 
 Prosper, lui, était allé s’asseoir à la place et devant le pupitre d’un des employés absent pour le moment. Les autres brûlaient de connaître le résultat de l’enquête sommaire, la plus ardente curiosité brillait dans leurs yeux, pourtant ils n’osaient interroger.
@@ -795,6 +910,10 @@ Bientôt, cependant, il cessa de remuer le crayon qu’il tenait; il attira à l
 — Eh! eh! pensa Fanferlot, dit l’Écureuil, dont l’ouïe et la vue fonctionnaient à miracle, malgré son profond sommeil, eh! eh! on fait ses petites confidences au papier; nous allons donc enfin savoir quelque chose de positif.
 
 Sa courte lettre écrite, Prosper la plia soigneusement, la réduisant au moindre volume possible, et, après un regard furtif donné à l’agent de la sûreté, toujours immobile dans son coin, il la jeta au petit Cavaillon avec ce seul mot:
+
+<p style="text-align: right" aria-hidden="true">
+  26
+</p>
 
 * * *
 
@@ -822,6 +941,10 @@ Le commissaire eut l’air de ne pas comprendre.
 
 — Comment, demanda-t-il, des humiliations?
 
+<p style="text-align: right" aria-hidden="true">
+  27
+</p>
+
 * * *
 
 — Quoi! monsieur, fit vivement M. Fauvel, la justice ne doit-elle pas être et n’est-elle pas une pour tous? De ce que je suis chef de maison pendant qu’il n’est qu’employé, s’ensuit-il qu’on doive me croire sur parole? Pourquoi ne me serais-je pas volé moi-même? On connaît des exemples. On me demandera des faits, je serai obligé d’exposer à un juge la situation exacte de ma maison, de lui expliquer mes affaires, de lui dévoiler le secret et le mécanisme de mes opérations.
@@ -847,6 +970,10 @@ M. Fauvel, bien plus troublé que son caissier, essaya une dernière tentative:
 Prosper ne sembla pas l’entendre. Il tira de sa poche une petite clé qu’il plaça sur la cheminée.
 
 — Voici, monsieur, dit-il, la clé de votre caisse. J’espère, pour moi, que vous reconnaîtrez un jour que je ne
+
+<p style="text-align: right" aria-hidden="true">
+  28
+</p>
 
 * * *
 
@@ -876,6 +1003,10 @@ Le commissaire de police l’interrompit.
 
 Le banquier répondit par un geste d’approbation.
 
+<p style="text-align: right" aria-hidden="true">
+  29
+</p>
+
 * * *
 
 — Pour ce qui m’est personnel, continua le caissier, j’avais en quelque sorte le droit que je me suis arrogé, ayant dans la maison toutes mes économies, c’est-à-dire une quinzaine de mille francs.
@@ -904,6 +1035,10 @@ Ils sortirent, et c’est avec une tristesse morne, les yeux humides de larmes q
 
 C’est Fanferlot, l’homme à l’oreille toujours ouverte, qui recueillit et nota cette phrase, et prompt au soupçon, trop disposé à accorder à autrui un fonds d’astuce égal
 
+<p style="text-align: right" aria-hidden="true">
+  30
+</p>
+
 * * *
 
 au sien, il ne fut pas fort éloigné de croire qu’elle avait été prononcée à son intention.
@@ -923,6 +1058,10 @@ Fanferlot était persuadé que ce billet était destiné, non au jeune employé,
 Après mûres réflexions, l’agent de la sûreté décida, en sa sagesse policière, qu’il était puéril de demander un secret quand on pouvait le surprendre. Épier Cavaillon, le suivre, le saisir si bien en flagrant délit qu’il ne pût nier, n’était qu’un jeu.
 
 Puis ces façons d’agir étaient bien mieux dans le ca-
+
+<p style="text-align: right" aria-hidden="true">
+  31
+</p>
 
 * * *
 
@@ -945,6 +1084,10 @@ Enfin, vers une heure, l’agent de la sûreté vit Cavaillon se lever, quitter 
 — Bon! se dit-il, le gaillard va sortir, ouvrons l’œil.
 
 L’instant d’après, en effet, Cavaillon parut à la porte de la maison de banque. Mais avant de poser le pied sur le trottoir, il regardait de droite et de gauche; il hésitait.
+
+<p style="text-align: right" aria-hidden="true">
+  32
+</p>
 
 * * *
 
@@ -978,6 +1121,10 @@ Même avec ses pratiques il est parfait, et c’est avec les plus grands égards
 
 — Oh! que si; vous m’avez très-bien vu ce matin. Il s’agit d’ailleurs de la moindre des choses, et si vous vou-
 
+<p style="text-align: right" aria-hidden="true">
+  33
+</p>
+
 * * *
 
 liez me faire l’honneur d’accepter mon bras et de sortir un instant avec moi, vous me combleriez.
@@ -1005,6 +1152,10 @@ Le jeune employé comprit que s’obstiner en présence d’un homme si bien ren
 — Soit, fit-il, c’est vrai, j’ai reçu un billet de Prosper; seulement, comme il était pour moi seul, après l’avoir lu je l’ai déchiré et j’en ai jeté les morceaux au feu.
 
 Ce pouvait fort bien être la vérité. Fanferlot en eut
+
+<p style="text-align: right" aria-hidden="true">
+  34
+</p>
 
 * * *
 
@@ -1036,6 +1187,10 @@ Mais il en fut pour sa tentative, l’agent de la sûreté est aussi fort que do
 
 — Allons, bon! voici que vous allez me réduire à des extrémités pénibles. Savez-vous ce qui va arriver, si vous vous entêtez? J’appellerai deux sergents de ville qui vous prendront chacun un bras et vous conduiront chez le commissaire de police, et une fois là, j’aurai la douleur de vous fouiller bon gré mal gré. Tenez, franchement, vous me désolez.
 
+<p style="text-align: right" aria-hidden="true">
+  35
+</p>
+
 * * *
 
 Certes, Cavaillon était dévoué à Prosper, mais il lui était prouvé clair comme le jour qu’une lutte ne le mènerait à rien, qu’il n’aurait même pas le temps d’anéantir « le corps du délit. »
@@ -1061,6 +1216,10 @@ Enfin il lut:
 Moins consterné, Cavaillon eût pu surprendre sur la figure de l’agent de la sûreté tous les signes d’un immense désappointement.
 
 Fanferlot s’était bercé de cet espoir qu’il allait s’emparer d’un document très-important, et, qui sait? peut-être d’une preuve irrécusable de l’innocence ou de la culpabilité de Prosper. Au lieu de cela, il venait de mettre
+
+<p style="text-align: right" aria-hidden="true">
+  36
+</p>
 
 * * *
 
@@ -1102,6 +1261,10 @@ Cavaillon essaya une certaine résistance, il voulut discuter, mais M. Fanferlot
 
 — Mais, monsieur, Prosper a été mon protecteur, il m’a tiré de la misère, il est mon ami.
 
+<p style="text-align: right" aria-hidden="true">
+  37
+</p>
+
 * * *
 
 — Raison de plus pour vous tenir tranquille. Pouvez-vous le servir? Non, n’est-ce pas? Eh bien! je vous dirai, moi, que vous pouvez lui nuire. On sait que vous lui êtes dévoué, ne remarquera-t-on pas votre absence? Si vous vous remuez, si vous tentez des démarches qui n’aboutiront à rien, ne les interprétera-t-on pas mal?
@@ -1128,6 +1291,10 @@ Le petit groom hésita; ce que voyant, M. Fanferlot montra sa lettre.
 
 — Je suis chargé, insista-t-il, par M. Prosper, de remettre ce billet à madame et d’attendre sa réponse.
 
+<p style="text-align: right" aria-hidden="true">
+  38
+</p>
+
 * * *
 
 — Entrez alors, je vais prévenir madame.
@@ -1149,6 +1316,10 @@ Elle était ravissante ainsi, d’une beauté si insolente et si tapageuse, que 
 — Saperlotte! se dit-il, songeant à la beauté noble et sévère de Madeleine, entrevue quelques heures plus tôt, il a bon goût, notre caissier, très-bon goût… trop bon goût.
 
 Pendant qu’il réfléchissait ainsi, tout penaud, se de-
+
+<p style="text-align: right" aria-hidden="true">
+  39
+</p>
 
 * * *
 
@@ -1184,6 +1355,10 @@ L’agent de la sûreté s’exprimait avec un sérieux si convaincu que M<sup>m
 
 — Je n’ai jamais su deviner les énigmes, dit-elle sèchement; que prétendez-vous insinuer, s’il vous plaît?
 
+<p style="text-align: right" aria-hidden="true">
+  40
+</p>
+
 * * *
 
 L’homme de la préfecture de police sortit lentement de sa poche la lettre enlevée à Cavaillon, et la présentant à M<sup>me</sup> Gypsy:
@@ -1213,6 +1388,10 @@ Si brave qu’il soit, lui qui chaque jour affronte les plus dangereux coquins, 
 — C’est faux! s’écria la jeune femme, c’est une infamie et une absurdité.
 
 Elle avait lâché les poignets de Fanferlot, et sa fureur, véritable rage d’enfant gâté, s’exhalait en gestes désordonnés. Elle se souciait bien vraiment de son beau peignoir et de ses magnifiques dentelles, qu’elle lacérait impitoyablement.
+
+<p style="text-align: right" aria-hidden="true">
+  41
+</p>
 
 * * *
 
@@ -1244,6 +1423,10 @@ Elle secoua tristement la tête; une larme, à grand’peine retenue, voilait l�
 
 — Mais alors pourquoi…
 
+<p style="text-align: right" aria-hidden="true">
+  42
+</p>
+
 * * *
 
 — Ah! oui…, interrompit M<sup>me</sup> Gypsy, pourquoi? Vous serez bien habile, vous, de me le dire. Voici un an que je cherche vainement une réponse à cette question terrible pour moi, et je suis femme!… Mais allez donc deviner la pensée d’un homme si maître de soi que rien de ce qui se passe en son cœur ne remonte à ses yeux. Je l’ai observé comme une femme sait observer l’homme de qui dépend sa destinée, peine perdue! Il est bon, il est doux, mais il n’offre aucune prise. On le croit faible, on se trompe. C’est une barre d’acier peinte en roseau, que cet homme à cheveux blonds.
@@ -1257,6 +1440,10 @@ Pour lui, Fanferlot, il s’applaudissait intérieurement de son bonheur et de s
 M<sup>me</sup> Gypsy haussa les épaules.
 
 — Oui, c’est vrai, répondit-elle, il joue. Je lui ai vu, sans un tressaillement, perdre ou gagner des sommes considérables. Il joue, mais il n’est pas joueur. Il joue comme il soupe, comme il se grise, comme il fait des folies, sans passion, sans entraînement, sans plaisir. Quelquefois il me fait peur: il me semble qu’il traîne un corps où il n’y a plus d’âme. Ah! je ne suis pas heureuse, allez! Jamais je n’ai surpris en lui qu’une indifférence profonde, si immense, que souvent elle m’a paru être du désespoir. Et cet homme-là aurait volé! Allons donc! Tenez, vous ne m’ôterez pas de l’idée qu’il y a quelque chose de terrible dans sa vie, un secret, un grand malheur, je ne sais quoi, mais quelque chose.
+
+<p style="text-align: right" aria-hidden="true">
+  43
+</p>
 
 * * *
 
@@ -1279,6 +1466,10 @@ Si décidé qu’il fût à se réserver les difficultés comme les bénéfices 
 C’est-à-dire que tout d’abord il s’efforça consciencieusement de calmer l’exaltation de la jeune femme. Il pensait qu’il serait aisé de lui démontrer que la moindre démarche en faveur de Prosper serait une folie insigne.
 
 — Que gagnerez-vous, chère madame? lui disait-il; rien. Vous n’avez pas, je vous l’affirme, la moindre chance de succès. Et songez que vous allez vous compromettre gravement. Qui sait si la justice ne voudra pas voir en vous une complice de M. Bertomy!
+
+<p style="text-align: right" aria-hidden="true">
+  44
+</p>
 
 * * *
 
@@ -1308,6 +1499,10 @@ La jeune femme eut un beau geste de téméraire fierté; elle ne doutait de rien
 
 — Il est des gens, monsieur, répondit-elle, qu’il faut sauver sans les prévenir et comme malgré eux. Je con-
 
+<p style="text-align: right" aria-hidden="true">
+  45
+</p>
+
 * * *
 
 nais Prosper, il est homme à se laisser assassiner sans lutter, sans mot dire, à s’abandonner par insouciance, par désespoir…
@@ -1336,6 +1531,10 @@ Elle hésitait, encore, il prit sur la table la lettre de Prosper, qu’elle y a
 
 — Quoi! M. Bertomy, dans un moment terrible, alors qu’il va être arrêté, vous écrit pour vous tracer votre conduite, et vous voulez rendre vaine cette sage précaution! Que vous dit-il? Tenez, relisons ensemble ce billet, qui est comme le testament de sa liberté. Il vous dit: « Si tu m’aimes, je t’en prie, obéis… » Et vous hé-
 
+<p style="text-align: right" aria-hidden="true">
+  46
+</p>
+
 * * *
 
 sitez à obéir. Il vous dit encore: « Il y va de ma vie… » Vous ne l’aimez donc pas? Quoi! vous ne comprenez pas, malheureuse enfant, qu’en vous conjurant de fuir, de vous cacher, M. Bertomy a ses raisons, raisons impérieuses, terribles…
@@ -1361,6 +1560,10 @@ Mais alors il faut fuir, monsieur, fuir bien vite! Qui sait si la police n’est
 — Peu importe!…
 
 Et laissant seul l’agent de la sûreté, M<sup>me</sup> Nina se précipita dans sa chambre à coucher, appelant à grands cris sa femme de chambre, sa cuisinière, le petit groom lui-même, ordonnant de vider les tiroirs et les armoires, d’entasser pêle-mêle dans des malles tout ce qui lui appartenait, et de se dépêcher surtout, de se presser.
+
+<p style="text-align: right" aria-hidden="true">
+  47
+</p>
 
 * * *
 
@@ -1400,6 +1603,10 @@ M<sup>me</sup> Gypsy allait envoyer chercher une voiture, Fanferlot, qui se dit 
 
 Il jouait d’ailleurs de bonheur ce jour-là. Un fiacre passait devant la maison, il l’arrêta.
 
+<p style="text-align: right" aria-hidden="true">
+  48
+</p>
+
 * * *
 
 — Tu vas, dit-il au cocher après lui avoir décliné ses titres, attendre ici une petite dame brune qui va descendre avec des colis. Si elle te dit de la conduire quai Saint-Michel, tu feras claquer ton fouet; si elle te donne une autre adresse, descends de ton siége avant de partir, comme pour arranger un trait; je serai à portée de voir et d’entendre.
@@ -1410,8 +1617,9 @@ Il n’en eut guère le temps: de formidables coups de fouet troublaient le sile
 
 — Allons! s’écria-t-il gaîment, celle-là, du moins, je la tiens.
 
-
-## IV
+<h2 id="IV" style="text-align: center; font-weight: 100; border: none; font-size: 2em;">
+  IV
+</h2>
 
 À cette heure même où M<sup>me</sup> Nina Gypsy allait chercher un refuge à cet hôtel du Grand-Archange, qui lui avait été indiqué par M. Fanferlot, dit l’Écureuil, Prosper Bertomy était écroué au dépôt de la préfecture de police.
 
@@ -1420,6 +1628,10 @@ Depuis le moment où, maître de ses impressions, il avait réussi à reprendre 
 Vainement les gens qui l’entouraient, observateurs ingénieux, avaient épié une défaillance de son regard, une expression douteuse de sa physionomie, ils l’avaient trouvé de marbre.
 
 Même, on aurait pu le croire insensible à son affreuse
+
+<p style="text-align: right" aria-hidden="true">
+  49
+</p>
 
 * * *
 
@@ -1449,6 +1661,10 @@ Il parut touché de cette marque banale d’intérêt et répondit:
 
 Il faisait un temps magnifique, une resplendissante journée de printemps. Tout le long de la rue Montmar-
 
+<p style="text-align: right" aria-hidden="true">
+  50
+</p>
+
 * * *
 
 tre que suivait le fiacre, Prosper mit plusieurs fois la tête à la portière, se plaignant, en souriant, d’être mis en prison par ce beau soleil, lorsqu’il ferait si bon être dehors.
@@ -1471,6 +1687,10 @@ Si troublé que fut le caissier, il ne put s’empêcher de remarquer que les ye
 
 Cet homme, aux allures de chef de bureau, n’était
 
+<p style="text-align: right" aria-hidden="true">
+  51
+</p>
+
 * * *
 
 autre qu’un illustre employé de la préfecture de police, M. Lecoq.
@@ -1492,6 +1712,10 @@ C’est que Prosper Bertomy n’était pas ce qu’il paraissait être.
 Ce gentleman hautain et correct, sorte de gandin glacé, avait des passions ardentes et un tempérament de feu.
 
 Mais, un jour, vers vingt-quatre ans, l’ambition l’avait mordu au cœur. Pendant que tous ses désirs souffraient, emprisonnés dans sa médiocrité comme un lycéen dans une tunique trop étroite, regardant autour de lui tous ces riches auxquels l’argent donne la baguette des mille et une nuits, il envia leur sort.
+
+<p style="text-align: right" aria-hidden="true">
+  52
+</p>
 
 * * *
 
@@ -1523,6 +1747,10 @@ Au matin, cependant, le sommeil lui vint avec le jour, et il dormait encore lors
 
 — Allons, monsieur, disait-il, à l’instruction!
 
+<p style="text-align: right" aria-hidden="true">
+  53
+</p>
+
 * * *
 
 D’un bond il fut debout, il allait donc être interrogé.
@@ -1553,6 +1781,10 @@ Le gardien du malheureux caissier l’arrêta devant une de ces portes.
 
 À cette réflexion du gardien, faite d’un ton de com-
 
+<p style="text-align: right" aria-hidden="true">
+  54
+</p>
+
 * * *
 
 misération profonde, Prosper ne put s’empêcher de frissonner.
@@ -1575,6 +1807,10 @@ La galerie, à l’heure où Prosper y arriva, était fort animée. Le banc éta
 
 Devant chaque porte, qui est celle d’un juge d’instruction, se tenaient des groupes de témoins, où on causait à voix basse. À tout moment, allaient et venaient des gendarmes de Paris, dont les fortes bottes résonnaient sur les dalles, et qui amenaient ou reconduisaient des pri-
 
+<p style="text-align: right" aria-hidden="true">
+  55
+</p>
+
 * * *
 
 sonniers. Parfois, dominant le sourd murmure, on entendait un sanglot, et une femme, la mère ou la sœur de quelque prévenu, passait un mouchoir sur les yeux. À de courts intervalles, une porte s’ouvrait et se refermait, et la voix d’un huissier criait un nom ou un numéro.
@@ -1596,6 +1832,10 @@ Vis-à-vis la porte est un grand bureau, encombré de dossiers, derrière lequel
 Mais Prosper ne remarquait pas ces détails. Toute son attention se concentrait sur le magistrat, et, à mesure qu’il l’examinait mieux, il se disait que son gardien ne l’avait pas trompé.
 
 Il est vrai que la figure de M. Patrigent, figure irrégulière, encadrée de courts favoris roux, animée par des yeux vifs et spirituels, respirant la bonté, est de celles qui, au premier abord, rassurent et attirent.
+
+<p style="text-align: right" aria-hidden="true">
+  56
+</p>
 
 * * *
 
@@ -1643,6 +1883,10 @@ Le renseignement qu’il cherchait trouvé, M. Patrigent reprit l’interrogatoi
 
 C’est d’une voix affreusement troublée que Prosper répondit à ces dernières questions. C’est que s’il est des heures dans la vie où le souvenir de la famille encourage
 
+<p style="text-align: right" aria-hidden="true">
+  57
+</p>
+
 * * *
 
 et console, il est de ces moments affreux où on voudrait être seul au monde et sortir des Enfants trouvés.
@@ -1670,6 +1914,10 @@ Depuis vingt-quatre heures, le malheureux jeune homme avait eu le temps de se fa
 Le magistrat interrompit Prosper d’un geste.
 
 — Précisons, dit-il; le vol a été commis dans des circonstances telles que les soupçons ne peuvent, ce semble, atteindre que M. Fauvel ou vous. Peut-on soupçonner quelque autre personne?
+
+<p style="text-align: right" aria-hidden="true">
+  58
+</p>
 
 * * *
 
@@ -1703,6 +1951,10 @@ En faisant comparaître Prosper, M. Patrigent obéissait à l’article 93 du Co
 
 Mais ce n’est pas en vingt-quatre heures, surtout dans une affaire comme celle-là, en l’absence de tout corps de délit, de toute preuve matérielle, de tout indice même,
 
+<p style="text-align: right" aria-hidden="true">
+  59
+</p>
+
 * * *
 
 qu’un juge d’instruction peut réunir les éléments d’un interrogatoire.
@@ -1727,6 +1979,10 @@ Facile tout à l’heure avec le prévenu, le juge d’instruction devenait atte
 
 — Procédons par ordre, monsieur, dit-il à M. Fauvel, et, pour le moment, bornez-vous, je vous prie, à répondre à mes questions. Doutiez-vous de la probité de votre caissier?
 
+<p style="text-align: right" aria-hidden="true">
+  60
+</p>
+
 * * *
 
 — Certes, non! Et cependant, mille raisons auraient dû m’inquiéter.
@@ -1748,6 +2004,10 @@ M. Patrigent eut un certain froncement de sourcils qui lui est familier quand il
 — Pourquoi? fit le banquier de l’air le plus surpris. Je lui aurais le plus volontiers du monde accordé la main de Madeleine, et pour être franc, je supposais qu’il me la demanderait. Ma nièce eût été un beau parti, un parti inespéré pour lui; elle est très-jolie, et elle aura un demi-million de dot.
 
 — Alors, vous ne voyez nul motif à la conduite de votre caissier?
+
+<p style="text-align: right" aria-hidden="true">
+  61
+</p>
 
 * * *
 
@@ -1785,6 +2045,10 @@ Le juge d’instruction n’avait plus l’air d’écouter; il inscrivait ce no
 
 — Non, le mot avait été changé l’avant-veille et sa singularité m’avait frappé.
 
+<p style="text-align: right" aria-hidden="true">
+  62
+</p>
+
 * * *
 
 — Quel était-il?
@@ -1812,6 +2076,10 @@ Voyant qu’on ne l’interrogeait plus, le banquier pensa qu’il pouvait enfin
 — Il suffit, monsieur.
 
 Il suffisait en effet. Déjà M. Patrigent était renseigné et savait aussi bien que le banquier à quoi s’en tenir sur sa situation.
+
+<p style="text-align: right" aria-hidden="true">
+  63
+</p>
 
 * * *
 
@@ -1841,6 +2109,10 @@ C’était au jeune Cavaillon à être interrogé.
 
 Le pauvre garçon était, lorsqu’il se présenta devant le juge, dans un état à faire pitié.
 
+<p style="text-align: right" aria-hidden="true">
+  64
+</p>
+
 * * *
 
 Ayant, en grand secret, la veille, raconté à un de ses amis, clerc d’avoué, son aventure avec l’agent de la sûreté, ce clerc l’avait outrageusement plaisanté de sa poltronnerie. Il éprouvait d’affreux remords et avait passé la nuit à se reprocher d’avoir perdu Prosper.
@@ -1867,6 +2139,10 @@ Fanferlot, qui s’était présenté en saluant jusqu’à terre, s’inclina, s
 
 C’est qu’en dépit de son visage riant, mille inquiétu-
 
+<p style="text-align: right" aria-hidden="true">
+  65
+</p>
+
 * * *
 
 des le taquinaient. Pour suivre seul l’affaire Bertomy, il lui fallait jouer un double jeu qu’on pouvait découvrir. À ménager la chèvre de la justice et le chou de son ambition, il courait de gros risques, dont le moindre était de perdre sa place.
@@ -1891,6 +2167,10 @@ Fanferlot eut un sourire malin.
 
 Resté seul, et bien que la soirée fût avancée, M. Patrigent prit encore bon nombre de mesures qui devaient faire affluer chez lui les dépositions.
 
+<p style="text-align: right" aria-hidden="true">
+  66
+</p>
+
 * * *
 
 Cette affaire s’était absolument emparée de son esprit, et l’irritait et l’attirait tout ensemble. Il lui semblait y découvrir certains côtés obscurs et mystérieux qu’il s’était juré de pénétrer.
@@ -1905,8 +2185,9 @@ Le second était M. Raoul de Lagors.
 
 Mais leur absence n’empêchait pas le dossier de Prosper de grossir, et le lundi suivant, c’est-à-dire cinq jours après le vol, M. Patrigent croyait avoir entre les mains assez de preuves morales pour écraser son prévenu.
 
-
-## V
+<h2 id="V" style="text-align: center; font-weight: 100; border: none; font-size: 2em;">
+  V
+</h2>
 
 Pendant que sa vie entière était l’objet des plus minutieuses investigations, Prosper était en prison, au secret.
 
@@ -1917,6 +2198,10 @@ On lui avait, sur ses instances, donné quelques feuilles de papier, numérotée
 Le troisième jour, il commença à s’inquiéter de ne voir personne que les condamnés employés au service des « secrets » et le geôlier chargé de lui apporter ses repas.
 
 — Est-ce qu’on ne va pas m’interroger de nouveau? demandait-il chaque fois.
+
+<p style="text-align: right" aria-hidden="true">
+  67
+</p>
 
 * * *
 
@@ -1956,6 +2241,10 @@ Repoussé par ce dernier ami, un père, le malheureux caissier parut se roidir c
 
 — Mais je suis innocent, mon père, je vous le jure par la mémoire sacrée de ma mère.
 
+<p style="text-align: right" aria-hidden="true">
+  68
+</p>
+
 * * *
 
 — Malheureux!… s’écria M. Bertomy, ne blasphémez pas!…
@@ -1988,6 +2277,10 @@ M. Bertomy eut un geste de méprisante pitié:
 
 — Assez, monsieur, assez. Je sais tout, je vous l’ai dit.
 
+<p style="text-align: right" aria-hidden="true">
+  69
+</p>
+
 * * *
 
 J’ai vu votre patron hier. Ce matin, j’ai vu votre juge, et c’est à sa bonté que je dois d’avoir pu pénétrer jusqu’à vous. Savez-vous que j’ai dû, moi, me laisser fouiller, déshabiller presque, pour entrer ici. On pensait que je vous apportais une arme.
@@ -2005,6 +2298,10 @@ M. Bertomy s’arrêta brusquement.; il venait de s’apercevoir que son fils pa
 — Brisons là, reprit-il, je ne suis pas venu ici pour vous faire des reproches, je suis venu pour sauver, s’il se peut, quelque chose de notre honneur, pour empêcher qu’on imprime notre nom dans les journaux judiciaires, parmi les noms des voleurs et des assassins. Levez-vous et écoutez-moi.
 
 À la voix impérieuse de son père, Prosper se dressa
+
+<p style="text-align: right" aria-hidden="true">
+  70
+</p>
 
 * * *
 
@@ -2029,6 +2326,10 @@ Cette menace tira Prosper de son anéantissement.
 M. Bertomy s’arrêta court, épouvanté de l’expression de la physionomie, de son fils. Une colère si furieuse qu’elle tournait à la folie, contractait ses traits; ses yeux, tout à l’heure éteints, lançaient des éclairs.
 
 — Vous n’avez pas le droit, mon père, s’écria-t-il, non, vous n’avez pas le droit d’agir ainsi. Libre à vous de refuser de me croire; il vous est interdit de tenter une démarche qui serait un aveu et me perdrait. Qui vous assure que je suis coupable? Quoi? lorsque la justice hésite, vous, mon père, vous n’hésitez pas, et, plus im-
+
+<p style="text-align: right" aria-hidden="true">
+  71
+</p>
 
 * * *
 
@@ -2055,6 +2356,10 @@ Il s’attendrissait; mais bientôt il reprit avec une violence croissante:
 — Prenez garde! fit M. Bertomy, la colère vous égare!…
 
 — Oui, je vous comprends, vous allez me vanter la probité de M. André Fauvel; vous allez me dire que toutes les vertus se sont réfugiées au sein de cette fa-
+
+<p style="text-align: right" aria-hidden="true">
+  72
+</p>
 
 * * *
 
@@ -2084,6 +2389,10 @@ Il fallait obéir quand même, il obéit.
 
 Mais sa démarche n’était plus celle des premiers jours, un changement complet venait de s’opérer en lui. Il allait le front haut, d’un pas assuré, et le feu de la résolution éclatait dans ses yeux.
 
+<p style="text-align: right" aria-hidden="true">
+  73
+</p>
+
 * * *
 
 Il connaissait le chemin, maintenant, et il marchait un peu en avant du garde de Paris qui l’accompagnait.
@@ -2107,6 +2416,10 @@ Prosper, surpris, s’arrêta; il cherchait une réponse, mais déjà l’homme 
 — Il ne faudrait pas en jurer, parce que, voyez-vous, personne ne peut se vanter de connaître la vraie figure de M. Lecoq. Il est ceci aujourd’hui et cela demain; tantôt brun, tantôt blond, parfois tout jeune, d’autres fois si vieux qu’on lui donnerait cent ans. Tenez, moi qui vous parle, il m’enfonce comme il veut. Je cause avec un inconnu, paf! c’est lui. N’importe qui peut être lui. On m’aurait dit que vous étiez lui, j’aurais répondu: C’est bien possible. Ah! il peut se vanter, celui-là, de faire tout ce qu’il veut de son corps.
 
 Le garde de Paris aurait longtemps encore poursuivi la légende de M. Lecoq, mais il arrivait avec son prévenu à la galerie des juges d’instructions.
+
+<p style="text-align: right" aria-hidden="true">
+  74
+</p>
 
 * * *
 
@@ -2137,6 +2450,10 @@ Prosper secoua tristement la tête.
 — Si on le savait, répondit-il simplement, je serais en liberté et non pas ici.
 
 Le vulgaire moyen employé par le juge d’instruction réussit fort souvent. Mais ici avec un prévenu si maître de soi, il n’avait guère de chances de succès. Cependant il l’avait tenté à tout hasard.
+
+<p style="text-align: right" aria-hidden="true">
+  75
+</p>
 
 * * *
 
@@ -2174,6 +2491,10 @@ Ce témoin, parti pour un voyage le jour même du vol, n’avait pu être entend
 
 — Soit, dit-il, je n’insisterai pas sur ce point. Appre-
 
+<p style="text-align: right" aria-hidden="true">
+  76
+</p>
+
 * * *
 
 nez-moi pourquoi, malgré les ordres formels de votre patron, vous avez fait prendre l’argent à la Banque la veille et non le jour même du remboursement?
@@ -2203,6 +2524,10 @@ Pendant le temps assez long, indispensable à Sigault, le greffier, pour écrire
 Prosper hésita.
 
 — Vous vous taisez, reprit M. Patrigent; alors je vais vous dire l’emploi de votre temps. Vous êtes rentré chez vous, rue Chaptal, vous vous êtes habillé, et vous vous êtes rendu à une soirée que donnait une de ces femmes
+
+<p style="text-align: right" aria-hidden="true">
+  77
+</p>
 
 * * *
 
@@ -2235,6 +2560,10 @@ Prosper était non pas décontenancé, mais stupéfait. Ne se doutant pas des pu
 — D’où vous venait donc cet argent, alors que la veille même vous étiez assez à court pour remettre le paiement d’une facture peu importante?
 
 — Monsieur, ce jour que vous dites, j’ai vendu, par l’intermédiaire d’un agent de change, quelques titres que j’avais, moyennant 3,000 francs; j’ai de plus pris à ma caisse, en avance sur mes appointements, 2,000 francs. Je n’ai rien à dissimuler.
+
+<p style="text-align: right" aria-hidden="true">
+  78
+</p>
 
 * * *
 
@@ -2270,6 +2599,10 @@ Prosper voulut protester, mais M. Patrigent lui imposa silence. Il cherchait par
 
 — Ah! voilà, fit-il, écoutez. Palmyre Chocareille, née à Paris en 1840, fille de Chocareille (Jacques), em-
 
+<p style="text-align: right" aria-hidden="true">
+  79
+</p>
+
 * * *
 
 ployé aux pompes funèbres, et de Caroline Piedlent, sa femme.
@@ -2289,6 +2622,10 @@ Tout en lisant, le juge d’instruction observait Prosper, cherchant sur son vis
 — Jamais, monsieur…
 
 — Cet infortuné aimait tant cette créature, qu’à la
+
+<p style="text-align: right" aria-hidden="true">
+  80
+</p>
 
 * * *
 
@@ -2313,6 +2650,10 @@ Il avait espéré arracher un cri à la passion de Prosper, blessée au vif; poi
 — M. Patrigent haussa les épaules.
 
 — Vous niez l’évidence, fit-il. Soutiendrez-vous aussi que ce n’est pas pour cette fille que vous avez renoncé à des habitudes de plusieurs années et cessé de passer vos soirées chez votre patron?
+
+<p style="text-align: right" aria-hidden="true">
+  81
+</p>
 
 * * *
 
@@ -2348,6 +2689,10 @@ M. Patrigent ne put dissimuler un sourire de satisfaction.
 
 — Enfin! dit-il, voilà l’argument que j’attendais. C’est précisément en ne prenant pas la fuite, en restant, pour faire tête à l’orage, que vous prouvez votre intelligence.
 
+<p style="text-align: right" aria-hidden="true">
+  82
+</p>
+
 * * *
 
 Plusieurs procès récents ont appris aux caissiers infidèles que la fuite à l’étranger est un pitoyable moyen. Le chemin de fer va vite, mais le télégraphe électrique va plus vite encore. La Belgique est à deux pas. À Londres, on retrouve un voleur français en quarante-huit heures par abonnement. L’Amérique même n’est plus un refuge assuré. Prudent et sage, vous êtes resté en vous disant: « Je puis m’en tirer, et, au pis aller, si je succombe, après trois ou cinq ans de réclusion, je retrouverai une fortune. » Bien des gens sacrifieraient cinq ans de leur vie pour 350,000 francs.
@@ -2367,6 +2712,10 @@ Prosper réfléchissait, et la contraction de ses traits disait l’effort de sa
 — C’est bien, fit M. Patrigent, ce garçon sera entendu. On va maintenant vous reconduire à votre cellule, et, croyez-moi, réfléchissez.
 
 Si M. Patrigent congédiait ainsi brusquement son prévenu, c’est que ce fait nouveau, qui tout à coup se révélait, l’inquiétait. La déposition du garçon de bureau allait avoir une importance énorme. Que penser, si cet homme venait à affirmer qu’il avait vu le caissier renfermer les billets et sortir? Était-il impossible qu’il eût été d’avance gagné par Prosper?
+
+<p style="text-align: right" aria-hidden="true">
+  83
+</p>
 
 * * *
 
@@ -2397,6 +2746,10 @@ Le malheureux garçon de bureau s’était, en tombant, brisé le genou; il souf
 — Très-bien! Allons, alors.
 
 En voyant entrer le juge d’instruction, suivi d’un grand jeune homme maigre portant une serviette d’avocat, Antonin, qui sait son monde, devina ce dont il s’agissait.
+
+<p style="text-align: right" aria-hidden="true">
+  84
+</p>
 
 * * *
 
@@ -2434,6 +2787,10 @@ Le ton solennel de M. Patrigent parut épouvanter Antonin.
 
 Il fut impossible de l’amener à préciser sa déposition.
 
+<p style="text-align: right" aria-hidden="true">
+  85
+</p>
+
 * * *
 
 Il avait eu peur, il se voyait déjà compromis, pour un rien il se serait rétracté.
@@ -2442,8 +2799,9 @@ L’effet n’en était pas moins produit, et en sortant M. Patrigent disait à 
 
 — C’est grave! très-grave!
 
-
-## VI
+<h2 id="VI" style="text-align: center; font-weight: 100; border: none; font-size: 2em;">
+  VI
+</h2>
 
 L’hôtel du _Grand-Archange_, asile de M<sup>me</sup> Gypsy, est le plus magnifique du quai Saint-Michel.
 
@@ -2460,3 +2818,9 @@ Pardon! elle adore aussi son mari, et à l’heure où M. Patrigent revenait de 
 Et Fanferlot en personne parut sur le seuil.
 
 Trois ans auparavant, Fanferlot tenait un petit bureau de renseignements clandestins; M<sup>me</sup> Alexandre, marchande à la toilette sans patente, eut besoin de faire surveiller quelques créances suspectes; de là leurs premières relations.
+
+<p style="text-align: right" aria-hidden="true">
+  86
+</p>
+
+* * *
