@@ -2824,3 +2824,785 @@ Trois ans auparavant, Fanferlot tenait un petit bureau de renseignements clandes
 </p>
 
 * * *
+
+S’ils s’épousèrent pour de bon à la mairie et à l’église, c’est qu’il leur sembla qu’un sacrement serait comme un baptême qui laverait leur passé!
+
+De ce jour, Fanferlot céda son cabinet de recherches pour entrer à la Préfecture, où il avait déjà été employé, et M<sup>me</sup> Alexandre renonça au commerce.
+
+Faisant une seule masse de leurs économies, ils louèrent et meublèrent l’hôtel du Grand-Archange, et ils prospérèrent, estimés, ou à peu près, du voisinage, lequel ignorait les relations de Fanferlot et de la préfecture de police.
+
+— Comme tu rentres tard, mon petit homme, s’écria-t-elle, lâchant la cuillère à potage pour courir l’embrasser.
+
+Mais c’est d’un air distrait qu’il reçut ces caresses.
+
+— Je suis éreinté, dit-il; j’ai joué toute la journée au billard avec Évariste, le valet de chambre de M. Fauvel, je l’ai laissé me gagner tant qu’il a voulu; un garçon qui ne sait pas seulement ce que c’est qu’un « massé »… enfin! J’ai fait sa connaissance avant-hier et je suis maintenant son meilleur ami. Si je veux entrer chez le banquier comme garçon de bureau à la place d’Antonin, je suis sûr de la protection de M. Évariste.
+
+— Quoi! tu serais garçon de bureau, toi!…
+
+— Dame! s’il le faut absolument pour y voir tout à fait clair dans la maison Fauvel et étudier mes personnages de plus près.
+
+— Le valet de chambre ne t’a donc rien dit?
+
+— Rien du moins qui puisse me servir, et cependant je l’ai retourné comme un gant. C’est un homme comme on n’en voit pas, ce banquier. Il n’a pas un vice, me disait Évariste, pas seulement un pauvre petit défaut sur lequel son valet de chambre puisse gagner dix sous. Il ne fume pas, il ne boit pas, il ne joue jamais, il n’a pas de maîtresses; un saint, quoi! Il est riche à millions et il vit petitement, chichement, comme un épicier; il est fou de sa femme, il adore ses enfants, il reçoit souvent, mais sort très-rarement.
+
+<p align="right" aria-hidden="true">
+  87
+</p>
+
+* * *
+
+— Sa femme est donc jeune?
+
+— Elle doit avoir dans les cinquante ans.
+
+M<sup>me</sup> Alexandre réfléchit un instant.
+
+— T’es-tu informé, demanda-t-elle, des autres personnes de la famille?
+
+— Certainement. Un des fils est officier, je ne sais où, n’en parlons pas: c’est le plus jeune. L’aîné, Lucien, qui vit avec ses parents, est, à ce qu’il paraît, une vraie demoiselle pour la sagesse.
+
+— Et la femme, et cette nièce dont tu m’as parlé?
+
+— Évariste n’a rien pu me dire sur leur compte.
+
+M<sup>me</sup> Alexandre haussa les épaules.
+
+— Si tu n’as rien trouvé, fit-elle, c’est qu’il n’y a rien. Et tiens, à ta place, sais-tu ce que je ferais?
+
+— Parle.
+
+— J’irais consulter M. Lecoq.
+
+Fanferlot à ce nom bondit comme si on lui eût tiré un coup de pistolet aux oreilles.
+
+— Joli conseil! fit-il, tu veux donc que je perde ma place? Si M. Lecoq se doutait seulement de ce que j’ai voulu faire.
+
+— Qui te parle de lui dire ton secret, on lui demande son avis d’un air indifférent, on retient ce qu’il peut avoir imaginé de bien et ensuite on agit à sa guise.
+
+L’agent de la sûreté parut peser les raisons de son épouse.
+
+— Tu as peut-être raison, dit-il, et cependant il est diablement malin, M. Lecoq, et fort capable de me deviner.
+
+— Malin!… riposta M<sup>me</sup> Alexandre piquée, malin!… c’est vous tous à la préfecture qui, à force de répéter ça, avez fait sa réputation.
+
+— Enfin, conclut Fanferlot, je verrai, je réfléchirai, mais en attendant, que dit la petite!
+
+La petite, c’était M<sup>me</sup> Nina Gypsy.
+
+En venant s’installer au Grand-Archange, la pauvre fille avait cru suivre un bon conseil, et encore maintenant, Fanferlot ne s’étant pas montré, elle restait con-
+
+<p align="right" aria-hidden="true">
+  88
+</p>
+
+* * *
+
+vaincue qu’elle avait obéi à un ami de Prosper. Lorsqu’elle avait reçu la citation de M. Patrigent, elle avait admiré l’habileté de la police qui avait su en si peu de temps découvrir sa cachette; car elle s’était établie à l’hôtel sous un faux nom, c’est-à-dire sous son vrai nom de Palmyre Chocareille.
+
+Habilement questionnée par l’ancienne marchande à la toilette, elle s’était livrée sans défiance et avait racontée toute son histoire.
+
+Et c’est ainsi, à peu de frais, que Fanferlot avait pu se poser près du juge en agent d’une habileté supérieure.
+
+— La petite, répondit M<sup>me</sup> Alexandre, est toujours là-haut?
+
+— Toujours… et elle ne se doute de rien. Mais la retenir devient de plus en plus difficile. Je ne sais ce que lui a dit le juge, elle m’est revenue hors d’elle-même. Elle voulait aller faire du tapage chez M. Fauvel. Ce tantôt, après un accès de colère, elle a écrit une lettre et l’a donnée à Jean pour la mettre à la poste; mais je m’en suis emparée pour te la montrer.
+
+— Quoi! interrompit Fanferlot, tu as une lettre et tu ne me le dis pas, et elle renferme peut-être le mot de l’énigme! Vite, donne-la moi!…
+
+Sur l’ordre de son mari, l’ancienne marchande à la toilette ouvrit une petite chiffonnière et en tira la lettre de M<sup>me</sup> Gypsy, qu’elle lui présenta.
+
+— Tiens, lui dit-elle, sois satisfait.
+
+En vérité, pour une ancienne femme de chambre, Palmyre Chocareille, devenue M<sup>me</sup> Gypsy, n’avait pas une vilaine écriture.
+
+L’adresse de sa lettre, tracée en belle anglaise était ainsi conçue:
+```
+    Monsieur
+      L. de Clameran, maître de forges
+           à l’hôtel du Louvre.
+     Pour remettre à M. Raoul de Lagors.
+              (Très-pressée.)
+```
+
+<p align="right" aria-hidden="true">
+  89
+</p>
+
+* * *
+
+— Oh! oh! fit Fanferlot, accompagnant son exclamation d’un petit sifflement qui lui est habituel quand il croit avoir fait quelque trouvaille, oh! oh!…
+
+— Est-ce que tu vas l’ouvrir? interrogea M<sup>me</sup> Alexandre.
+
+— Un peu, répondit Fanferlot, en faisant sauter le cachet avec une merveilleuse dextérité.
+
+Il lut, et M<sup>me</sup> Alexandre, penchée sur l’épaule de son « petit homme, » lut aussi:
+
+« Monsieur Raoul,
+
+Prosper est en prison, accusé d’un vol qu’il n’a pas commis, j’en suis sûre. Déjà, il y a trois jours, je vous ai écrit à ce sujet… »
+
+— Hein! comment!… s’interrompit Fanferlot, cette péronnelle a écrit et je n’ai pas vu sa lettre!…
+
+— Mais, mon bon petit homme, cette malheureuse peut avoir jeté sa lettre à la poste elle-même, lorsqu’elle est sortie pour aller au Palais de Justice.
+
+— C’est possible, en effet, dit Fanferlot un peu calmé.
+
+Il reprit sa lecture:
+
+« … Je vous ai déjà écrit à ce sujet, et je n’ai pas de nouvelles. Qui donc viendra au secours de Prosper si ses meilleurs amis l’abandonnent? Si vous laissiez cette lettre-ci sans réponse, je me croirai dégagée de certaine promesse que vous savez, et, sans scrupule, je raconterai à Prosper la conversation surprise par moi entre vous et M. de Clameran. Mais je puis compter sur vous, n’est-ce pas? Je vous attendrai à l’hôtel du Grand-Archange, après-demain, de midi à quatre heures.
+
+NINA GYPSY. »
+
+Cette lettre lue, Fanferlot, sans mot dire, se mit à la recopier.
+
+— Eh bien! demanda M<sup>me</sup> Alexandre, qu’en dis-tu?
+
+Fanferlot réintégrait délicatement la lettre recopiée dans son enveloppe, lorsque la porte du « bureau de l’hôtel » s’ouvrit brusquement, et le garçon par deux fois siffla: Psitt! psitt!…
+
+<p align="right" aria-hidden="true">
+  90
+</p>
+
+* * *
+
+Fanferlot, avec une rapidité merveilleuse, disparut dans un cabinet noir qui ouvrait sur la salle à manger.
+
+Il n’eut pas le temps de refermer la porte; M<sup>me</sup> Gypsy entrait.
+
+Hélas! elle était cruellement changée, la pauvre fille. Elle avait pâli, ses joues s’étaient creusées, ses lèvres avaient perdu leur provoquant éclat, et ses yeux, brillant du feu de la fièvre, rougis par les larmes, étaient entourés d’un large cercle brun.
+
+En la voyant, M<sup>me</sup> Alexandre ne put retenir un cri de surprise:
+
+— Comment, chère enfant, vous sortez?
+
+— Il le faut, madame, et je viens vous prier, si quelqu’un me demandait en mon absence, de vouloir bien faire attendre.
+
+— Mais où voulez-vous aller, bon Dieu! à cette heure, malade comme vous l’êtes?
+
+M<sup>me</sup> Gypsy hésita un moment.
+
+— Oh! tenez, dit-elle enfin, je puis vous le confier à vous, si bonne pour moi, lisez ce billet qu’un commissionnaire vient de me monter à l’instant.
+
+— Comment, fit M<sup>me</sup> Alexandre abasourdie, un commissionnaire!… chez moi qui est monté chez vous?
+
+— Qu’y a-t-il de si surprenant?
+
+— Oh! rien, rien… répondit l’ex-revendeuse.
+
+Et très-haut, pour bien être entendue du cabinet, elle lut:
+
+« Un ami de Prosper, qui ne peut ni vous recevoir ni se présenter chez vous, a absolument besoin de vous parler. Ce soir, lundi, trouvez-vous, neuf heures précises, dans le bureau des omnibus qui est en face de la tour Saint-Jacques, et celui qui vous écrit s’approchera de vous et vous dira ce qu’il a à vous dire. »
+
+« Je vous indique ce lieu de rendez-vous pour bien éloigner de votre esprit toute crainte. »
+
+— Et, vous allez à ce rendez-vous! s’écria M<sup>me</sup> Alexandre.
+
+— Certainement.
+
+<p align="right" aria-hidden="true">
+  91
+</p>
+
+* * *
+
+— Mais c’est une imprudence horrible, une folie; c’est un piége qu’on vous tend.
+
+— Eh! qu’importe, madame! interrompit Gypsy, je suis assez malheureuse désormais pour n’avoir plus rien à redouter.
+
+Et sans vouloir entendre un mot de plus, elle sortit.
+
+M<sup>me</sup> Gypsy n’était pas dans la rue, que déjà Fanferlot avait bondi hors de sa cachette.
+
+Le doux agent était blême de fureur et jurait comme un possédé.
+
+— Mille millions de tonnerre! criait-il, qu’est-ce donc que cette maison du Grand-Archange où on se promène aussi librement que sur une place publique!
+
+L’ancienne marchande à la toilette, décontenancée, tremblante, ne savait où se mettre.
+
+— A-t-on jamais vu chose pareille! poursuivait l’agent; un commissionnaire est venu, et personne ne l’a vu! Comment s’y est-il pris pour s’introduire ainsi furtivement? Ah! je flaire là-dessous quelque gredinerie. Et vous, M<sup>me</sup> Alexandre, vous une femme intelligente, vous êtes assez simple pour détourner cette petite vipère de ce rendez-vous!…
+
+— Mais, mon ami…
+
+— Quoi! vous n’avez donc pas compris que je vais la suivre et savoir ainsi ce qu’elle nous cache. Allons vite, aidez-moi, il faut qu’elle ne puisse pas me reconnaître.
+
+En un tour de main, Fanferlot, affublé d’une perruque et d’une barbe épaisse, ne se ressemblait plus. Il avait endossé une blouse et avait toutes les apparences d’un de ces ouvriers peu honnêtes qui cherchent de l’ouvrage en priant Dieu de n’en pas trouver.
+
+Quand il fut prêt:
+
+— As-tu ta carte et ton « coup de poing, » demanda M<sup>me</sup> Alexandre, toujours pleine de sollicitude.
+
+— Oui, oui! fais jeter à la poste la lettre de cette malheureuse à M. de Clameran et… bonne garde.
+
+Et, sans écouter son épouse, qui lui criait: « Bonne chance! » Fanferlot s’élança dehors.
+
+<p align="right" aria-hidden="true">
+  92
+</p>
+
+* * *
+
+M<sup>me</sup> Gypsy avait bien huit ou dix minutes d’avance, mais il ratrapa lestement sa distance. Il avait pris, au pas de course, la route que la jeune femme devait avoir suivie, et il la rejoignit vers le milieu du pont au Change.
+
+Elle allait d’une allure indécise, tantôt très vite, tantôt à petits pas, en personne qui, impatiente de se rendre à un rendez-vous, est partie trop tôt et cherche à user le temps.
+
+Sur la place du Châtelet, elle fit deux ou trois tours, s’approcha des affiches du théâtre, s’assit un moment sur un banc, et enfin, à neuf heures moins un quart, à peu près, elle alla s’installer sur une des banquettes du bureau des omnibus.
+
+Une minute après elle, Fanferlot entra. Mais, comme en dépit de sa barbe épaisse il redoutait l’œil de madame Gypsy, il alla se placer de l’autre côté du bureau, dans l’ombre.
+
+— Singulier lieu de rencontre! pensait-il, tout en étudiant la jeune femme. Mais qui peut lui avoir donné ce rendez-vous? À la curiosité que je lis dans ses yeux, à son inquiétude évidente, je jurerais qu’elle ignore qui elle attend!
+
+Le bureau, cependant était plein de monde. À toute minute, des employés criaient la destination d’un omnibus qui arrivait. Quantité de gens entraient et sortaient, qui réclamaient des numéros ou changeaient leurs correspondances.
+
+À chaque nouvel arrivant, Gypsy tressaillait et Fanferlot se disait: « Est-ce celui-là? »
+
+Enfin, au moment où neuf heures sonnaient à l’Hôtel-de-Ville, un personnage entra, qui, sans demander de numéro au bureau, marcha droit à M<sup>me</sup> Gypsy, la salua et s’assit près d’elle.
+
+C’était un homme de taille moyenne, assez gros, portant d’épais favoris d’un blond ardent sur une figure enluminée. Sa mise, qui était celle de tous les négociants aisés, n’offrait rien de remarquable, pas plus d’ailleurs que sa personne.
+
+<p align="right" aria-hidden="true">
+  93
+</p>
+
+* * *
+
+Fanferlot le regardait de tous ses yeux.
+
+— Toi, mon bonhomme, pensait-il, quelque part que je te rencontre maintenant, je te reconnaîtrai, et, ce soir même, en te suivant, je saurai qui tu es.
+
+Par malheur, il avait beau prêter l’oreille, il n’entendait rien absolument de ce que se disaient le nouveau venu et M<sup>me</sup> Gypsy. Tout ce qu’il pouvait faire, c’était de tâcher de deviner à leur pantomine et au jeu de leur physionomie le sujet de leur conversation.
+
+Tout d’abord, quand le gros homme l’avait saluée, la jeune femme avait eu l’air si surpris, qu’il était clair, qu’elle le voyait pour la première fois. Lorsque, s’étant assis, il lui eut dit quelques mots, elle se leva à demi avec un geste d’effroi, comme si elle eut voulu s’enfuir. Un regard seul suffit pour la faire se rasseoir. Puis, à mesure que parlait le gros monsieur, l’attitude de Gypsy trahissait une certaine appréhension. Elle fit un geste négatif, mais elle sembla se rendre à une bonne raison qui lui fut donnée. À un moment, elle parut près de pleurer, et presque aussitôt un sourire éclaira son joli visage. Enfin, elle étendit la main, comme si elle eût prêté un serment.
+
+Mais qu’est-ce que cela signifiait? Fanferlot, sur sa banquette, se rongeait les poings.
+
+— Idiot que je suis! se disait-il, de m’être placé si loin.
+
+Il songeait à exécuter quelque manœuvre habile pour se rapprocher sans éveiller les soupçons, lorsque le gros monsieur se leva, offrit son bras à M<sup>me</sup> Gypsy qui l’accepta sans façon, et ensemble ils se dirigèrent vers la porte.
+
+Ils avaient l’air si préoccupés l’un et l’autre, que Fanferlot ne vit nul inconvénient à les suivre d’assez près; sage précaution, car il y avait foule sur le boulevard.
+
+Arrivé sur la porte, il vit le gros homme et Gypsy traverser le trottoir, s’approcher d’un fiacre, non loin du bureau des omnibus, et monter dans ce fiacre.
+
+— Parfait! grommela Fanferlot, je les tiens, maintenant, inutile de se presser.
+
+<p align="right" aria-hidden="true">
+  94
+</p>
+
+* * *
+
+Pendant que le cocher rassemblait ses guides, l’agent de la sûreté préparait ses jambes, et lorsque la voiture s’ébranla, en trois sauts il fut derrière, décidé à la suivre jusqu’au bout du monde.
+
+Le fiacre remontait le boulevard de Sébastopol. Il allait bon train, mais ce n’est pas pour rien que Fanferlot a été surnommé l’Écureuil. Les coudes collés au corps, ménageant bien sa respiration, il se maintenait.
+
+Pourtant, en arrivant au boulevard Saint-Denis, il commençait à s’essouffler, et il ressentait une légère douleur au côté, lorsque le fiacre, après avoir traversé la chaussée, s’engagea dans la rue du Faubourg-Saint-Martin.
+
+Mais Fanferlot, qui à huit ans polissonnait librement sur le pavé de Paris, est un homme de ressources. Il s’accrocha aux ressorts de la voiture, se souleva à la force des poignets et se maintint suspendu, les jambes appuyées sur l’essieu des roues de derrière. Il n’était certes pas à son aise, mais il ne courait plus le risque d’être distancé.
+
+— Maintenant, disait-il en riant dans sa fausse barbe, fouette cocher!
+
+Le cocher fouettait, en effet, et c’est au grand trot qu’il monta la rampe assez rude de la rue du Faubourg-Saint-Martin.
+
+Enfin, sur la place de l’ancienne barrière, le fiacre s’arrêta devant un marchand de vin, le cocher descendit de son siége et alla se faire servir un canon.
+
+L’agent de la sûreté, lui, avait quitté son poste incommode, et, blotti dans l’encoignure d’une porte, il attendait à descendre le gros monsieur et Gypsy, prêt à s’élancer sur leurs traces.
+
+Mais, au bout de cinq minutes, ils n’étaient pas encore descendus.
+
+— Que font-ils donc? pensa l’agent.
+
+Il s’approcha, non sans précautions.
+
+Ô déception! la voiture était vide.
+
+Ce fut comme un seau d’eau glacée tombant sur la
+
+<p align="right" aria-hidden="true">
+  95
+</p>
+
+* * *
+
+tête de Fanferlot; il restait là, planté sur ses deux pieds, plus cristalisé que la femme de Loth.
+
+Quand il se remit un peu, au bout de quelques secondes, ce fut pour lâcher une douzaine de jurons à faire trembler les vitres du quartier.
+
+— Volé! disait-il, joué, floué, collé, roulé… Ah! ils me le payeront!
+
+En un moment, son esprit agile parcourut la gamme des éventualités probables et improbables.
+
+— Évidemment, murmurait-il, cet individu et Gypsy sont entrés par une portière et sortis par l’autre; la manœuvre est élémentaire. Mais, s’ils l’ont employée, c’est qu’ils craignaient d’être suivis. S’ils craignaient d’être suivis, c’est qu’ils n’ont pas la conscience tranquille, donc…
+
+Il interrompit son monologue parce que l’idée lui vint d’interroger le cocher, qui pouvait fort bien savoir quelque chose.
+
+Malheureusement, ce cocher, qui était de fort mauvaise humeur, refusa de rien dire, et même agita son fouet d’une façon si peu rassurante, que Fanferlot jugea prudent de battre en retraite.
+
+— Ah çà! se disait-il, est-ce que le cocher en serait, lui aussi!…
+
+Que faire cependant, à cette heure? Il n’avait pas une idée. Tristement il reprit le chemin du quai Saint-Michel, et il était onze heures et demie au moins lorsqu’il sonna à sa porte.
+
+— La petite est-elle rentrée? demanda-t-il tout d’abord.
+
+— Non, mais voici deux gros paquets apportés pour elle.
+
+Lestement, avec une adresse supérieure, Fanferlot défit les paquets.
+
+Les paquets renfermaient trois robes d’indienne, de gros souliers, des jupons très simples et des bonnets de linge.
+
+L’agent ne put retenir un mouvement de dépit.
+
+<p align="right" aria-hidden="true">
+  96
+</p>
+
+* * *
+
+Allons, bon! fit-il, voici qu’elle va se déguiser, maintenant; par ma foi! je m’y perds!
+
+Certes, lorsqu’il descendait tout pensif les hauteurs du faubourg Saint-Martin, Fanferlot s’était bien juré qu’il ne raconterait pas à son épouse sa déconvenue!
+
+Mais une fois chez lui, une fois en présence d’un fait nouveau de nature à dérouter toutes ses conjectures, ses considérations d’amour-propre s’évanouirent.
+
+L’agent de la sûreté avoua tout: ses espérances si près de se réaliser, sa mésaventure incroyable, ses soupçons! Et longtemps le mari et la femme restèrent à discuter, étudiant, l’affaire sous toutes ses faces, cherchant une explication plausible.
+
+C’est qu’ils étaient bien décidés à ne se point coucher avant le retour de M<sup>me</sup> Gypsy, dont M<sup>me</sup> Alexandre se proposait de tirer quelques éclaircissements.
+
+Mais rentrerait-elle? Là était la question.
+
+Elle rentra un peu après une heure, et lorsque déjà les époux désespéraient et commençaient à se dire: « Nous ne la reverrons plus. »
+
+Au coup de sonnette, Fanferlot s’était glissé dans le cabinet noir, et M<sup>me</sup> Alexandre était restée seule dans le bureau de l’hôtel.
+
+— Enfin! vous voilà, chère enfant, s’écria-t-elle, il ne vous est pas arrivé malheur! Ah! j’étais dans une inquiétude mortelle.
+
+— Merci de votre intérêt, madame, répondit Gypsy; mais n’a-t-on rien apporté pour moi?
+
+Elle revenait tout autre qu’elle était partie, cette pauvre Gypsy: elle était bien triste, mais non plus abattue. À sa prostration des jours précédents, avait succédé une ferme et généreuse résolution que décelaient son maintien et l’éclat de ses yeux.
+
+— On a apporté les paquets que voici, répondit madame Alexandre… et ainsi vous avez vu l’ami de M. Bertomy?
+
+— Oui, madame, et même ses conseils ont si bien mo-
+
+<p align="right" aria-hidden="true">
+  97
+</p>
+
+* * *
+
+difié mes projets, que j’aurai, demain, le regret de vous faire mes adieux, je pars.
+
+— Demain! fit l’ancienne marchande à la toilette, il y a donc quelque chose?
+
+— Oh! rien qui puisse vous intéresser.
+
+Et ayant allumé sa bougie au bec de gaz, M<sup>me</sup> Gypsy se retira après un « bonsoir, bonne nuit » des plus significatifs.
+
+— Que penses-tu de cette rentrée, M<sup>me</sup> Alexandre? demanda Fanferlot sorti de sa cachette.
+
+— C’est à n’y pas croire! Cette petite écrit à M. de Clameran pour lui donner rendez-vous ici, et elle ne l’attend pas.
+
+— Évidemment elle se méfie de nous, elle sait qui je suis.
+
+— C’est alors cet ami du caissier qui l’a renseignée.
+
+— Qui sait!… Tiens, je finis par croire que j’ai affaire à des voleurs très-forts; ils ont deviné que je suis sur leurs traces, et ils veulent me dépister. On me dirait demain que cette coquine a le magot et qu’elle fuit avec, que je n’en serais pas surpris.
+
+— Ce n’est pas mon avis, répondit M<sup>me</sup> Alexandre; mais, écoute, j’en reviens à mon idée, tu devrais voir M. Lecoq.
+
+Fanferlot resta un moment pensif.
+
+— Eh bien! soit, s’écria-t-il, j’irai le voir, mais uniquement pour l’acquit de ma conscience, car où je n’ai rien vu, il ne verra rien. Il a beau être terrible, il ne me fait pas peur. S’il s’avisait de me malmener et d’être insolent, je saurais le remettre à sa place.
+
+N’importe, l’agent de la sûreté dormit mal cette nuit, ou, pour mieux dire, il ne dormit pas, plus préoccupé de l’affaire Bertomy qu’un dramaturge de la pièce en germe dans son cerveau.
+
+À six heures et demie, il était debout — il faut se lever matin, si on veut rencontrer M. Lecoq — et lesté d’une tasse de café au lait, il se dirigea vers la demeure du célèbre policier.
+
+<p align="right" aria-hidden="true">
+  98
+</p>
+
+* * *
+
+Certainement Fanferlot, dit l’Écureuil, n’a pas peur du patron, comme il l’appelle, et la preuve, c’est qu’il partit du Grand-Archange la tête haute, le chapeau posé de côté. Cependant, arrivé à la rue Montmartre, qu’habite M. Lecoq, sa crânerie avait sensiblement diminué. Il eut quelques palpitations en s’engageant dans l’allée de la maison et il fit plusieurs pauses en montant l’escalier.
+
+Arrivé au troisième étage, devant une porte décorée des armes du célèbre agent, — un coq, symbole de la vigilance, — le cœur lui manqua presque et il eut de la peine à se décider à sonner.
+
+La servante de M. Lecoq, une ancienne réclusionnaire taillée en carabinier, plus dévouée à son maître qu’un chien de berger, Janouille enfin, vint lui ouvrir.
+
+— Ah! fit-elle, en l’apercevant, vous tombez bien, M. l’Écureuil, le patron vous attend.
+
+À cette annonce, Fanferlot fut saisi d’une violente envie de battre en retraite. Pourquoi, comment, par quel hasard était-il attendu?…
+
+Mais, pendant qu’il hésitait, Janouille le saisit par le bras, et, l’attirant à elle, le fit entrer dans l’appartement en disant:
+
+— Voulez-vous prendre racine ici? Allons, arrivez, le patron travaille dans son cabinet.
+
+Au milieu d’une vaste pièce, bizarrement meublée, moitié bibliothèque de lettré, moitié loge d’acteur, assis devant un bureau, écrivait ce même personnage à lunettes d’or, qui dans les couloirs du dépôt avait dit à Prosper Bertomy: « Bon courage. »
+
+C’était M. Lecoq, sous ses apparences officielles.
+
+À l’entrée de Fanferlot, qui s’avançait respectueusement, l’échine en cerceau, il leva légèrement la tête, posa sa plume et dit:
+
+— Ah! te voilà, enfin! mon garçon. Eh bien! ça ne va donc pas, cette affaire Bertomy?
+
+— Comment, balbutia Fanfernot, vous savez…
+
+— Je sais que tu as si bien embrouillé les choses que tu n’y vois plus rien, que tu es rendu.
+
+<p align="right" aria-hidden="true">
+  99
+</p>
+
+* * *
+
+— Mais, patron, ce n’est pas moi…
+
+M. Lecoq s’était levé et arpentait son cabinet. Tout à coup il revint sur Fanferlot.
+
+— Que penses-tu, maître l’Écureuil, demanda-t-il d’un ton dur et ironique, d’un homme qui abuse la confiance de ceux qui l’emploient, qui révèle de ce qu’il découvre juste assez pour égarer la prévention, qui trahit au profit de sa sotte vanité et la cause de la justice et celle d’un malheureux prévenu?
+
+Fanferlot effrayé avait reculé d’un pas.
+
+— Je dirais, essaya-t-il, je dirais…
+
+— Tu penses qu’on doit punir cet homme et le chasser, et tu as raison. Moins une profession est honorée, plus ceux qui l’exercent doivent être honorables. C’est toi, cependant, qui as trahi. Ah! maître l’Écureuil, nous sommes ambitieux, et nous essayons de faire de la police de fantaisie. Nous laissons la justice s’égarer de son côté et nous cherchons d’un autre. Il faut être un limier plus fin que tu n’es, mon garçon, pour chasser sans chasseur et à son compte.
+
+— Mais, patron, je vous jure…
+
+— Tais-toi. Voudrais-tu me prouver que tu as tout dit au juge d’instruction, comme c’était ton devoir? Allons donc! Pendant qu’on instruit contre le caissier, tu instruits, toi, contre le banquier, tu l’épies, tu te lies avec son valet de chambre.
+
+M. Lecoq était-il véritablement en colère? Fanferlot qui le connaît bien, en doutait un peu, mais avec ce diable d’homme on ne sait jamais à quoi s’en tenir.
+
+— Si encore tu étais habile, poursuivait-il, mais non. Tu voudrais être maître et tu n’es même pas bon ouvrier.
+
+— Vous avez raison, patron, fit piteusement Fanferlot qui ne songeait plus à nier. Mais comment s’y prendre dans une affaire comme celle-ci, où il n’y avait pas une trace, pas une pièce de conviction, pas un indice, rien de rien!
+
+M. Lecoq haussa les épaules.
+
+<p align="right" aria-hidden="true">
+  100
+</p>
+
+* * *
+
+— Pauvre garçon! fit-il. Sache donc que le jour où tu as été mandé avec le commissaire de police pour constater le vol, tu as, — je ne dis pas certainement, — mais très-probablement, tenu entre tes deux grandes mains bêtes le moyen de savoir laquelle des clés, du banquier ou du caissier, avait servi à commettre le vol.
+
+— Par exemple!…
+
+— Tu veux des preuves? soit. Te souviens-tu de cette éraillure que tu as relevée le long du coffre-fort? Elle t’a frappé, car tu n’as pu retenir une exclamation en l’apercevant. Tu l’as examinée soigneusement, à la loupe; et tu as pu te convaincre qu’elle était toute fraîche encore, toute récente. Tu t’es dit, alors, et avec raison, que cette éraillure datait de l’instant du vol. Or, avec quoi avait-elle été faite? Avec une clé, évidemment. Cela étant, il fallait demander les clés du banquier et du caissier, et les étudier attentivement. L’une des deux devait avoir gardé à son extrémité quelques atômes au moins de cette peinture verte dont on enduit le fer des coffres-forts.
+
+C’est bouche béante que Fanferlot avait écouté cette explication. Sur les derniers mots, il se frappa violemment le front, en s’écriant:
+
+— Imbécile!
+
+— Tu l’as dit, reprit M. Lecoq, imbécile! Quoi! cet indice te saute aux yeux et tu le négliges, et tu n’en tires aucune conclusion! Là, cependant, est le vrai, le seul point de départ de l’affaire. Si je trouve le coupable, ce sera grâce à cette éraillure, et je le trouverai, je le veux!
+
+De loin, Fanferlot, dit l’Écureuil, médit volontiers de M. Lecoq et le brave courageusement; mais de près il subit invinciblement l’influence qu’exerce sur tous ceux qui l’approchent cet homme extraordinaire.
+
+Les renseignements si précis, les minutieux détails qui venaient de lui être donnés renversaient toutes ses idées. Où et comment M. Lecoq les avait-il eus?
+
+— Vous vous êtes donc occupé de cette affaire, patron? demanda-t-il.
+
+<p align="right" aria-hidden="true">
+  101
+</p>
+
+* * *
+
+— Probablement. Mais je ne suis pas infaillible, je puis avoir laissé passer quelque précieux indice. Prends une chaise et dis-moi tout ce que tu sais.
+
+On n’équivoque pas avec M. Lecoq, on ne ruse pas. Fanferlot fut complètement vrai, ce qui lui arrive rarement. Pourtant, sur la fin de son récit, pris d’un remords de vanité, il ne raconta pas comment, la veille, il s’était laissé jouer par M<sup>me</sup> Gypsy et le gros monsieur.
+
+Le malheur est que M. Lecoq n’est jamais informé à demi.
+
+— Il me semble, maître l’Écureuil, fit-il, que tu oublies quelque chose. Jusqu’où as-tu suivi le fiacre vide?
+
+Fanferlot, en dépit de son aplomb, rougit jusqu’aux oreilles et baissa les yeux ni plus ni moins qu’une pensionnaire prise en faute.
+
+— Quoi! patron, balbutia-t-il, cela aussi, vous le savez? comment avez-vous pu…
+
+Mais une idée subite traversant son cerveau, il s’arrêta court, bondit sur sa chaise et s’écria:
+
+— Oh! j’y suis… ce gros monsieur à favoris roux, c’était vous.
+
+La surprise de Fanferlot donnait à sa physionomie une si singulière expression, que M. Lecoq ne put s’empêcher de sourire.
+
+— Ainsi, c’était vous, reprit l’agent émerveillé, c’était vous ce gros homme que j’ai dévisagé, et je ne vous ai pas reconnu! Ah! patron, quel acteur vous feriez, si vous le vouliez! moi aussi, je m’étais déguisé!
+
+— Et bien mal, mon pauvre garçon, c’est une justice à te rendre. Penses-tu donc qu’il suffise, pour être méconnaissable, d’une barbe épaisse et d’une blouse? Et l’œil, malheureux! et l’œil! C’est l’œil qu’il faut changer. Là est le secret.
+
+Cette théorie du regard en matière de travestissement explique pourquoi le Lecoq officiel qui rendrait des points au lynx, n’a jamais été rencontré dans les couloirs de la préfecture de police, sans ses lunettes à branches d’or.
+
+<p align="right" aria-hidden="true">
+  102
+</p>
+
+* * *
+
+— Mais alors, patron, disait Fanferlot, poursuivant son idée, vous avez confessé cette petite, dont madame Alexandre n’avait pu venir à bout? Vous savez pourquoi elle quitte le Grand-Archange, pourquoi elle n’attend pas M. de Clameran, pourquoi elle s’est acheté des robes d’indienne?
+
+— Elle n’agit que d’après mes conseils.
+
+— En ce cas, fit l’agent, profondément découragé, il ne me reste plus qu’à avouer que je ne suis qu’un sot.
+
+— Non, l’Écureuil, reprit M. Lecoq avec bonté, non, tu n’es pas un sot. Tu as eu simplement le tort de te charger d’une tâche au-dessus de tes forces. As-tu fait faire un pas à l’affaire depuis que tu la suis? Non. C’est que, vois-tu, incomparable comme lieutenant, tu n’as pas le sang-froid d’un général. Je vais te faire cadeau d’un aphorisme, retiens-le, et qu’il devienne la règle de ta conduite: « Tel brille au second rang qui s’éclipse au premier. »
+
+Jamais, non jamais Fanferlot n’avait vu le patron si causeur et si bon enfant. Se voyant découvert, il s’était attendu à un orage qui le jetterait à terre, et pas du tout, il en était quitte pour une averse qui lui lavait à peine la tête. La colère de M. Lecoq se dissipait comme ces nuages noirs qui par moments menacent à l’horizon et qu’un coup de vent balaie.
+
+Pourtant l’époux de M<sup>me</sup> Alexandre était inquiet, il se demandait si cette affabilité surprenante ne dissimulait pas quelque arrière-pensée.
+
+— Comme cela, patron, demanda-t-il, vous connaissez le coupable?
+
+— Pas plus que toi, mon garçon, et même, pendant que tu as déjà une opinion toute faite, je ne sais encore que penser. Tu m’affirmes que le caissier est innocent et que le banquier est coupable, et j’ignore si tu as tort ou raison. Arrivé après toi, j’en suis encore aux préliminaires de mon enquête. Je ne suis certain que d’une seule chose, c’est qu’il y a une éraillure à la porte du coffre-fort. C’est de là que je pars.
+
+<p align="right" aria-hidden="true">
+  103
+</p>
+
+* * *
+
+Tout en parlant, M. Lecoq avait pris sur son bureau, déroulé et étalé, une immense feuille de papier à dessin.
+
+Sur cette feuille était photographiée la porte du coffre-fort de M. Fauvel. Tous les détails étaient rendus avec la dernière exactitude. On reconnaissait bien les cinq boutons mobiles avec les lettres gravées et l’étroite serrure à saillie de cuivre. L’éraillure y était indiquée avec une admirable netteté.
+
+— Voici donc, commença M. Lecoq, notre éraillure. Elle va de haut en bas, à partir du trou de la serrure, diagonalement, et, remarque-le bien, de gauche à droite, c’est-à-dire qu’elle se termine du côté de la porte de l’escalier dérobé conduisant aux appartements du banquier. Très-profonde près de la serrure, elle finit en rayure à peine distincte.
+
+— Oui, patron, c’est bien cela, je vois.
+
+— Naturellement tu as pensé que cette éraillure doit avoir été faite par l’auteur de la soustraction? Voyons si tu as eu raison. J’ai, ici, un petit coffret de fer, peint en vert comme la caisse de M. Fauvel; le voici. Prends une clé et essaie de le rayer.
+
+Sans trop deviner le but que se proposait son patron, l’agent de la sûreté fit ce qu’il lui commandait, frottant vigoureusement sur le coffret avec le bout d’une clé.
+
+— Diable! fit-il, après deux ou trois tentatives, elle est dure à entamer, cette peinture.
+
+— Très-dure, en effet, mon garçon, et cependant celle du coffre-fort est plus solide encore, je m’en suis assuré. Donc l’éraillure que tu as relevée n’a pu être faite par la main tremblante d’un voleur laissant glisser la clé!
+
+— Sapristi! exclama Fanferlot stupéfait, je n’aurais pas trouvé cela. C’est que c’est vrai, il faut, pour rayer le coffre, qu’on ait appuyé très-fort.
+
+— Oui, mais pourquoi? Tel que tu me vois, je me creuse la tête depuis trois jours, et c’est hier seulement que j’ai trouvé. Examinons ensemble si mes conjectures présentent assez de chances de probabilité pour devenir le point de départ de mon enquête.
+
+<p align="right" aria-hidden="true">
+  104
+</p>
+
+* * *
+
+M. Lecoq avait abandonné la photographie pour s’approcher de la porte qui, de son cabinet, donne dans sa chambre à coucher, et il en avait retiré la clé, qu’il gardait à la main.
+
+— Avance ici, dit-il à Fanferlot, place-toi là, à côté de moi; très-bien. Supposons que je veuille ouvrir cette porte et que tu ne le veuilles pas. Lorsque tu me vois approcher la clé de la serrure, quel est ton mouvement instinctif.
+
+— J’appuie mes deux mains sur votre bras que je tire à moi vivement, de façon que vous ne puissiez pas introduire la clé.
+
+— Justement. Alors, répétons ce mouvement, marche…
+
+Fanferlot obéit, et la clé que tenait M. Lecoq, détournée de la serrure, glissa le long de la porte et y traça une éraillure parfaitement nette, de haut en bas, diagonalement, reproduction exacte de celle que figurait la photographie.
+
+— Oh! fit sur trois tons différents l’époux de madame Alexandre, oh! oh!
+
+Et il restait en contemplation devant la porte.
+
+— Commences-tu à comprendre? demanda M. Lecoq.
+
+— Si je comprends! patron. Mais un enfant devinerait maintenant. Ah! quel homme vous êtes! Je vois la scène comme si j’y étais. Il y avait, au moment du vol, deux personnes près de la caisse: l’une voulait s’emparer des billets, l’autre ne voulait pas qu’on y touchât. C’est clair, c’est évident, c’est sûr…
+
+Accoutumé à bien d’autres triomphes, le célèbre policier s’amusait beaucoup de la stupeur et de l’enthousiasme de l’agent.
+
+— Voilà que tu t’emportes encore, lui dit-il doucement; tu prends pour certaine et comme prouvée une circonstance qui peut être fortuite et tout au plus probable.
+
+— Non, patron; non, s’écria Fanferlot, un homme comme vous ne se trompe pas: le doute n’est pas possible.
+
+<p align="right" aria-hidden="true">
+  105
+</p>
+
+* * *
+
+— À toi, alors, de tirer les conséquences de notre découverte.
+
+— D’abord, ceci prouve que mon flair ne m’avait pas trompé: le caissier est innocent.
+
+— Pourquoi?
+
+— Parce que libre d’ouvrir et de fermer la caisse quand bon lui semble, il n’aurait pas été chercher un témoin juste au moment de voler.
+
+— Bien raisonné. Seulement, à ce compte, le banquier, lui aussi, est innocent; réfléchis un peu.
+
+Fanferlot réfléchit et toute son animation tomba.
+
+— C’est vrai, fit-il d’un air désespéré, c’est vrai! Que faire, après cela?
+
+— Chercher le troisième larron, c’est-à-dire celui qui a ouvert la caisse et pris les billets, et qui dort bien tranquille pendant qu’on soupçonne les autres.
+
+— Impossible! patron, impossible! On ne vous a donc pas dit que M. Fauvel et son employé avaient seuls une clé qui ne les quittait jamais?
+
+— Pardon, la veille du vol, le banquier avait laissé sa clé dans son secrétaire.
+
+— Eh! la clé ne suffit pas pour ouvrir, il faut encore le mot.
+
+M. Lecoq impatienté haussa les épaules.
+
+— Quel était le mot? demanda-t-il.
+
+— Gypsy.
+
+— C’est-à-dire le nom de la maîtresse du caissier. Eh bien! mon garçon, cherche. Le jour où tu auras trouvé un homme assez lié avec Prosper pour se douter de la circonstance du nom, assez familier chez M. Fauvel pour arriver jusqu’à la chambre à coucher, ce jour-là tu tiendras le vrai coupable; le problème sera résolu.
+
+Égoïste comme tous les grands artistes, M. Lecoq n’a jamais fait d’élève et ne cherche pas à en faire. Il travaille seul. Il hait les collaborateurs, ne voulant partager ni les jouissances du triomphe, ni les amertumes de la défaite.
+
+Aussi, Fanferlot qui sait son patron sur le bout du
+
+<p align="right" aria-hidden="true">
+  106
+</p>
+
+* * *
+
+doigt, était-il confondu de l’entendre donner des conseils, lui, qui jamais ne donne que des ordres.
+
+Même, il était si fort intrigué, qu’en dépit des préoccupations supérieures, il ne put s’empêcher de témoigner sa surprise.
+
+— Il faut, patron, hasarda-t-il, que vous ayez à cette affaire un rude intérêt personnel, pour l’avoir étudiée ainsi.
+
+M. Lecoq eut un tressaillement nerveux qui échappa à son agent, puis, ses sourcils se froncèrent, et c’est d’un ton dur qu’il répondit:
+
+— C’est ton état d’être curieux, maître l’Écureuil; cependant il ne faudrait pas l’être trop, tu m’entends?
+
+Fanferlot chercha à s’excuser.
+
+— Bien! bien! interrompit M. Lecoq. Si je te donne un coup de main, c’est parce que cela me convient. Il me plaît d’être la tête, pendant que tu seras le bras. Seul, avec tes idées préconçues, tu n’aurais jamais trouvé le coupable; à nous deux nous le trouverons, ou je ne suis plus M. Lecoq.
+
+— Nous réussirons, puisque vous vous en mêlez.
+
+— Oui, je m’en mêle, et depuis quatre jours, j’ai appris bien des choses. Seulement, retiens bien ceci: J’ai des raisons pour ne point paraître en cette affaire. Quoi qu’il arrive, je te défends de prononcer mon nom. Si nous réussissons, il faut qu’on ne puisse attribuer le succès qu’à toi seul. Et surtout ne cherche jamais à en savoir plus long, contente-toi des explications qu’il me plaira de te donner.
+
+Ces conditions ne semblèrent nullement fâcher l’agent de la sûreté.
+
+— Je serai discret, patron, prononça-t-il.
+
+— J’y compte, mon garçon. Pour commencer, tu vas prendre cette photographie du coffre-fort et te rendre près du juge d’instruction. M. Patrigent, je le sais, est aussi perplexe que possible au sujet du prévenu. Tu lui expliqueras, comme venant de toi, ce que je viens de te faire voir, tu lui répéteras mes démonstrations, et ces in-
+
+<p align="right" aria-hidden="true">
+  106
+</p>
+
+* * *
+
+dices, j’en suis convaincu, le détermineront à faire relâcher le caissier. Il faut que Prosper soit libre, pour que je commence mes opérations.
+
+— C’est entendu, patron. Mais, devrai-je laisser voir que je soupçonne un coupable autre que le patron ou le caissier?
+
+— Nécessairement. La justice ne doit pas ignorer que tu vas suivre cette affaire. M. Patrigent te chargera de surveiller Prosper; réponds-lui que tu ne le perdras pas de vue. Je t’affirme, moi, qu’il sera en bonnes mains.
+
+— Et s’il me demande des nouvelles de Gypsy?
+
+M. Lecoq hésita un moment.
+
+— Tu diras, fit-il enfin, que tu l’as décidée, dans l’intérêt de Prosper, à se placer dans une maison où elle surveille quelqu’un que tu soupçonnes.
+
+Fanferlot, tout joyeux, avait roulé la photographie, pris son chapeau et s’apprêtait à sortir. M. Lecoq le retint d’un geste.
+
+— Je n’ai pas achevé, dit-il. Sais-tu conduire une voiture et soigner un cheval?
+
+— Quoi! patron, vous me demandez cela, à moi, un ancien écuyer du cirque Bouthor!
+
+— C’est juste. Puisqu’il en est ainsi, dès que le juge t’aura congédié, tu rentreras chez toi vivement, tu te composeras une tête et un costume de valet de chambre de bonne maison et tu te rendras, avec la lettre que voici, chez le placeur qui fait le coin du passage Delorme.
+
+— Mais, patron…
+
+— Il n’y a pas de mais, mon garçon; ce placeur te présentera à M. de Clameran qui cherche un valet de chambre, le sien l’ayant quitté hier soir.
+
+— Excusez-moi, si j’ose dire que vous vous trompez, mais ce Clameran ne réunit pas les conditions indiquées, il n’est pas l’ami du caissier.
+
+— Voilà que tu m’interromps déjà, dit M. Lecoq, de sa voix la plus impérative; fais donc ce que je te dis et ne t’inquiète pas du reste. M. de Clameran n’est pas
+
+<p align="right" aria-hidden="true">
+  107
+</p>
+
+* * *
+
+l’ami de Prosper, c’est vrai; mais il est l’ami, il est le protecteur de Raoul de Lagors. Pourquoi? D’où vient l’intimité de ces deux hommes d’âges si différents? Il faut le savoir. Il faut savoir aussi ce que c’est que ce maître de forges qui habite Paris et ne s’occupe nullement de ses hauts-fourneaux. Un gaillard qui a eu cette idée d’aller se loger à l’hôtel du Louvre, au milieu d’une cohue sans cesse renouvelée, est un gaillard difficile à surveiller. Par toi, j’aurai un œil dans sa vie. Il a une voiture, tu le conduiras, en moins de rien, tu connaîtras ses relations et tu pourras me rendre compte de ses moindres démarches.
+
+— Vous serez obéi, patron.
+
+— Encore un mot. M. de Clameran est un gentilhomme fort susceptible et encore plus soupçonneux. Tu lui seras présenté sous le nom de Joseph Dubois. Il te demandera des certificats. En voici trois qui attestent que tu as servi le marquis de Sairmeuse, le comte de Commarin, et qu’en dernier lieu tu sors de la maison du baron de Wortschen, reparti pour l’Allemagne. Et ouvre l’œil, soigne ta tenue, surveille tes mouvements. Sers bien, mais sans excès. Et pas trop d’honnêteté surtout, tu inspirerais des soupçons.
+
+— Soyez tranquille, patron; mais où irai-je au rapport?
+
+— J’irai te voir tous les jours. Jusqu’à nouvel ordre, défense de mettre le pied ici: on peut te suivre. Si une circonstance imprévue survient, adresse une dépêche à ta femme; elle me préviendra. Va… et sois prudent.
+
+La porte refermée sur Fanferlot, M. Lecoq passa vivement dans sa chambre à coucher.
+
+En un clin d’œil il eut dépouillé les apparences du chef de bureau, la cravate empesée et les lunettes d’or, et rendu la liberté à ses épais cheveux noirs. Le Lecoq officiel disparaissait, faisant place au vrai Lecoq, à celui que personne ne connaît, un beau gars, à l’œil clair, à l’air résolu.
+
+Mais il ne resta soi qu’un instant. Assis devant une
+
+<p align="right" aria-hidden="true">
+  108
+</p>
+
+* * *
+
+table de toilette plus chargée de pâtes, d’essences, de couleurs et de postiches que la toilette d’une demoiselle du lac, il se mit à défaire de nouveau l’œuvre du créateur et à se recomposer une physionomie.
+
+Il travaillait lentement, maniant avec un soin extrême ses petits pinceaux; mais au bout d’une heure, il avait terminé un de ses chefs-d’œuvre quotidiens. Quand il eut fini, il n’était plus Lecoq, il était le gros monsieur à favoris roux que n’avait pas reconnu Fanferlot.
+
+— Allons, disait-il, en jetant à son miroir un dernier coup d’œil, je n’ai rien oublié, je n’ai presque rien laissé au hasard, tous mes fils sont attachés, je puis marcher. Pourvu que l’Écureuil ne perde pas de temps!…
+
+Mais Fanferlot était bien trop joyeux pour gaspiller une minute. Il ne courait pas, il volait sur le chemin du Palais de Justice.
+
+Enfin! il allait donc pouvoir, à son tour, faire montre d’une perspicacité supérieure.
+
+Quant à se dire qu’il allait triompher avec les idées d’autrui, il n’y songeait pas. C’est presque toujours de la meilleure foi du monde que le geai se pavane avec les plumes du paon.
+
+— L’événement, d’ailleurs, ne trompa point ses espérances. Si le juge ne fut pas pleinement et absolument convaincu, il admira tout au moins l’ingéniosité du procédé.
+
+Voilà qui me décide, dit-il, en congédiant Fanferlot; je vais présenter à la chambre du conseil des conclusions favorables, et demain, très-probablement, le caissier sera relâché.
+
+Et, en effet, il se mit à rédiger une de ces terribles ordonnances de « non-lieu » qui rendent la liberté, mais non l’honneur, à l’homme accusé; qui disent qu’il n’est pas coupable, mais qui ne disent pas qu’il est innocent.
+
+« Attendu qu’il n’existe pas contre le prévenu Prosper Bertomy des charges suffisantes; vu l’article 128 du Code d’instruction criminelle, déclarons qu’il n’y a lieu
+
+<p align="right" aria-hidden="true">
+  109
+</p>
+
+* * *
+
+de suivre, quant à présent, contre ledit, ordonnons qu’il sera extrait de la maison où il est détenu, et qu’il sera mis en liberté par le gardien, etc. »
+
+Lorsqu’il eut achevé:
+
+— Allons, dit-il à son greffier Sigault, voici un de ces crimes encore dont la justice n’a jamais le mot. Encore un dossier à déposer aux archives du greffe.
+
+Et de sa main, sur la couverture, il inscrivit le numéro d’ordre: Dossier no 113.
+
+
+<h2 id="VI" align="center" style="font-weight: 100; border: none; font-size: 2em;">
+  VII
+</h2>
+
+Il y avait neuf jours que Prosper Bertomy était en prison, au secret, lorsqu’un matin, un jeudi, le geôlier vint lui signifier l’ordonnance de non-lieu.
+
+On le conduisit au greffe, on lui rendit plusieurs petits objets qui lui avaient été enlevés quand on l’avait fouillé à son arrivée: sa montre, un canif, quelques bijoux, et on lui fit signer une grande feuille de papier.
+
+On le poussa alors dans un corridor sombre, très-étroit, une porte s’ouvrit qui se referma sur lui avec un bruit sinistre.
+
+Il se trouvait sur le quai, il était seul, il était libre.
+
+Libre! c’est-à-dire que la justice se déclarait impuissante à le convaincre du crime dont on l’avait accusé.
+
+Libre! il pouvait marcher, respirer l’air pur, mais il allait trouver toutes les portes fermées à son approche.
+
+L’acquittement après les débats, c’est la réhabilitation. L’arrêt de non-lieu laisse planer sur celui qui a été arrêté un éternel soupçon.
+
+L’opinion a des rigueurs plus redoutables les « secrets! »
+
+En ce moment où la liberté lui était rendue, Prosper
+
+<p align="right" aria-hidden="true">
+  110
+</p>
+
+* * *
