@@ -2950,7 +2950,7 @@ Prosper est en prison, accusé d’un vol qu’il n’a pas commis, j’en suis 
 
 Il reprit sa lecture:
 
-« … Je vous ai déjà écrit à ce sujet, et je n’ai pas de nouvelles. Qui donc viendra au secours de Prosper si ses meilleurs amis l’abandonnent? Si vous laissiez cette lettre-ci sans réponse, je me croirai dégagée de certaine promesse que vous savez, et, sans scrupule, je raconterai à Prosper la conversation surprise par moi entre vous et M. de Clameran. Mais je puis compter sur vous, n’est-ce pas? Je vous attendrai à l’hôtel du Grand-Archange, après-demain, de midi à quatre heures.
+« …Je vous ai déjà écrit à ce sujet, et je n’ai pas de nouvelles. Qui donc viendra au secours de Prosper si ses meilleurs amis l’abandonnent? Si vous laissiez cette lettre-ci sans réponse, je me croirai dégagée de certaine promesse que vous savez, et, sans scrupule, je raconterai à Prosper la conversation surprise par moi entre vous et M. de Clameran. Mais je puis compter sur vous, n’est-ce pas? Je vous attendrai à l’hôtel du Grand-Archange, après-demain, de midi à quatre heures.
 
 NINA GYPSY. »
 
@@ -3603,6 +3603,528 @@ En ce moment où la liberté lui était rendue, Prosper
 
 <p align="right" aria-hidden="true">
   110
+</p>
+
+* * *
+
+sentit si cruellement l’horreur de sa situation, qu’il ne put retenir un cri de rage et de haine.
+
+— Mais je suis innocent, cria-t-il, je suis innocent.
+
+À quoi bon! Deux passants qui suivaient le quai s’arrêtèrent pour le regarder; ils le prenaient pour un fou.
+
+La Seine était là, à ses pieds; la pensée du suicide traversa son esprit.
+
+— Non! dit-il, non! je n’ai même pas le droit de me tuer. Non, je ne veux pas mourir avant de m’être réhabilité!
+
+Bien des fois, dans sa cellule du dépôt de la préfecture, Prosper Bertomy avait répété ce mot réhabilitation. Ayant dans le cœur cette haine froidement réfléchie, qui donne la force ou la patience de briser ou d’user tous les obstacles, il se disait: Ah! que ne suis-je libre!
+
+Il était libre, et à cette heure seulement il se rendait compte des immenses difficultés de sa tâche. Pour chaque crime il faut à la justice un criminel, il ne pouvait désormais faire éclater son innocence qu’en livrant un coupable; comment le trouver et le livrer?
+
+Désespéré, mais non découragé, il reprit le chemin de son logis. Mille inquiétudes l’assaillaient. Que s’était-il passé depuis neuf jours qu’il était comme rayé du nombre des vivants? Nul bruit n’était venu jusqu’à lui. Le silence des secrets est aussi terrible que celui de la tombe.
+
+Il allait lentement, le long des rues, la tête baissée, fuyant le regard des gens qu’il croisait. Il allait donc, lui si fier, faire l’apprentissage du mépris. Il allait voir, à son approche, les figures devenir glaciales, les conversations cesser. Toutes les mains se retireraient quand il tendrait la sienne.
+
+Si encore il eût pu compter sur un ami! Mais quel ami le croirait, quand son père, ce dernier ami des crises suprêmes, avait refusé de le croire.
+
+Au plus fort de ces tortures, les plus poignantes qu’on puisse imaginer, le nom de Nina Gypsy monta à ses lèvres.
+
+<p align="right" aria-hidden="true">
+  111
+</p>
+
+* * *
+
+Il ne l’avait jamais aimée, la pauvre fille; par moments il l’avait haïe, mais en ce moment son souvenir avait pour lui des douceurs infinies.
+
+C’est qu’il se sentait aimé par elle, c’est qu’il était sûr qu’elle ne douterait pas, elle, quand il aurait parlé. C’est qu’il savait que la femme reste ferme en ses croyances, fidèle au malheur quand même, elle qui ne l’est pas toujours à la prospérité.
+
+Arrivé rue Chaptal, devant sa maison, au moment de franchir le seuil de la porte, il hésita.
+
+Il souffrait de cette timidité de l’honnête homme soupçonné, il eût voulu ne jamais revoir une figure connue.
+
+Cependant, il ne pouvait rester là, sur le trottoir, il entra.
+
+À sa vue, le concierge eut une exclamation de joie.
+
+— Enfin! vous voici, monsieur, s’écriait-il, je disais bien, moi, que vous sortiriez de là, blanc comme neige. Quand j’ai lu dans les journaux qu’on vous accusait d’avoir volé, j’ai dit à tous ceux qui ont voulu l’entendre: « Mon locataire du troisième, un voleur, allons donc? »
+
+Les félicitations de cet homme, maladroites, peut-être, mais sincères, à coup sûr, impressionnèrent péniblement Prosper. Il voulut couper court à toute explication.
+
+— Madame est sans doute partie, demanda-t-il, savez-vous où elle est allée?
+
+— Ma foi! non, monsieur. Le jour de votre arrestation, elle a envoyé chercher un fiacre, on a chargé dessus toutes ses affaires, et depuis, ni vu, ni connu, nous n’avons plus entendu parler d’elle.
+
+Ce fut pour le malheureux caissier un chagrin ajouté à tous ses chagrins.
+
+— Et que sont devenus mes domestiques?
+
+— Partis aussi, monsieur. Votre père les a payés et renvoyés.
+
+— Alors, vous avez ma clé?
+
+— Non, monsieur. Quand votre père est sorti, ce matin à huit heures, il m’a dit qu’il laissait dans votre appar-
+
+<p align="right" aria-hidden="true">
+  112
+</p>
+
+* * *
+
+tement un de ses grands amis que je devais considérer comme le maître jusqu’à votre retour. Vous le connaissez sans doute: c’est un gros, de votre taille à peu près, avec des favoris roux.
+
+Prosper était aussi étonné que possible. Un ami de son père, chez lui, qu’est-ce que cela voulait dire? Cependant, il ne laissa rien voir de son étonnement.
+
+— Oui, je sais, répondit-il, je sais.
+
+Et gravissant rapidement l’escalier, il sonna chez lui.
+
+L’ami de son père vint lui ouvrir.
+
+Il était bien tel que le concierge le lui avait dépeint, assez gros, rouge de figure, ayant la lèvre sensuelle, l’œil d’une vivacité extraordinaire, l’air bon enfant, la tournure commune. Le caissier ne l’avait jamais vu.
+
+— Charmé de faire votre connaissance, monsieur, dit-il.
+
+Il était chez Prosper comme chez lui; sur la table du salon était un livre qu’il était allé prendre à la bibliothèque; encore un peu il eût fait les honneurs de l’appartement.
+
+— Je dois vous avouer, monsieur, commença le caissier…
+
+— Que vous êtes surpris de me trouver ici, n’est-ce pas? Je conçois cela. Votre père se proposait de me présenter à vous, mais il a été forcé de repartir ce matin pour Beaucaire. J’ajouterai qu’il est reparti convaincu, comme je le suis moi-même, que vous n’avez pas pris un sou à M. Fauvel.
+
+À cette nouvelle d’un heureux augure, Prosper ne put retenir une exclamation de joie.
+
+— D’ailleurs, continuait le gros homme, cette lettre de votre père, que je suis chargé de vous remettre, remplacera, je l’espère, une présentation.
+
+Le caissier prit la lettre qu’on lui tendait, l’ouvrit, et, à mesure qu’il lisait, sa figure s’éclairait, le sang remontait à ses joues blêmies.
+
+Sa lecture faite, il tendit la main au gros monsieur.
+
+— Mon père, monsieur, fit-il, me dit que vous êtes son
+
+<p align="right" aria-hidden="true">
+  113
+</p>
+
+* * *
+
+meilleur ami; il me recommande d’avoir en vous la confiance la plus absolue et de suivre vos conseils.
+
+— C’est cela. Ce matin, votre brave homme de père me dit: Verduret — c’est mon nom — Verduret, mon fils est dans le pétrin, il faut l’en sortir. J’ai répondu: « Présent, » et me voilà. La glace est rompue, n’est-ce pas? Alors, arrivons à la chose. Que comptez-vous faire?
+
+Cette question ralluma toutes les colères du caissier, ses yeux lancèrent des éclairs.
+
+— Ce que je compte faire? répondit-il d’une voix frémissante; je veux trouver le misérable qui m’a perdu, le livrer à la justice, me venger enfin!
+
+— Naturellement. Et avez-vous quelque moyen d’arriver à ce but?
+
+— Aucun; et cependant je réussirai, parce qu’un homme qui donne sa vie entière à une tâche, qui s’éveille chaque matin voulant ce qu’il a voulu la veille est sûr de réussir.
+
+— Bien dit, M. Prosper, et tenez, franchement, je m’attendais à vous trouver ces dispositions. Et la preuve, c’est que j’ai réfléchi et cherché pour vous. Je tiens un plan. Pour commencer, vous allez vendre votre mobilier, quitter cette maison et disparaître.
+
+— Disparaître! s’écria le caissier révolté, disparaître! Y pensez-vous, monsieur, ce serait m’avouer coupable, ce serait autoriser tout le monde à dire que je me cache pour jouir en paix des 350,000 fr. volés.
+
+— Eh bien! après? dit froidement l’homme aux favoris roux; ne venez-vous pas de m’affirmer que le sacrifice de votre vie est fait? Le nageur habile, que des malfaiteurs jettent à l’eau, se garde bien de revenir immédiatement à la surface; il plonge, au contraire, il nage sous l’eau tant que sa respiration le lui permet, il reparaît le plus loin possible, il prend terre hors de vue, et c’est quand on le croit perdu, noyé, qu’il surgit tout à coup et se venge. Vous avez un ennemi? Une imprudence seule peut le livrer. Mais tant qu’il vous verra debout, il aura peur.
+
+<p align="right" aria-hidden="true">
+  114
+</p>
+
+* * *
+
+C’est avec une sorte de soumission ébahie que Prosper écoutait cet homme, qui, tout en étant l’ami de son père, était pour lui un inconnu.
+
+Sans en avoir la conscience, il subissait l’ascendant d’une nature plus énergique que la sienne. Tout lui manquait, il était heureux de trouver un appui.
+
+— Je suivrai votre conseil, répondit Prosper, après quelques instants de réflexion.
+
+— J’en étais sûr, mon cher ami. Donc, nous faisons la lessive aujourd’hui. Et notez que le produit de la vente nous sera diablement utile. Avez-vous de l’argent? Non. Il en faut cependant. Je savais si bien vous convaincre, que j’ai fait venir un marchand de meubles; il prend tout ici, en bloc, pour 12,000 francs, les tableaux exceptés.
+
+Malgré lui, le caissier eut un haut-le-corps que remarqua M. Verduret.
+
+— Oui, fit-il, c’est dur, je le sais, mais c’est nécessaire. Écoutez, ajouta-t-il d’un ton qui tranchait avec le reste de la conversation: vous êtes le malade, et je suis le médecin chargé de vous guérir. Si je taille dans le vif, criez, mais laissez-moi tailler. Là est le salut.
+
+— Taillez, monsieur, répondit Prosper, subissant de plus en plus l’ascendant.
+
+— Parfait. Et… passons, car le temps presse… Vous êtes l’ami de M. de Lagors?
+
+— De Raoul? oui, monsieur, l’ami intime.
+
+— Alors, qu’est-ce que ce particulier?
+
+La qualification de « particulier » sembla blesser Prosper.
+
+— M. de Lagors, monsieur, répondit-il d’un ton piqué, est le neveu de M. Fauvel; c’est un tout jeune homme, riche, distingué, spirituel, et le meilleur et le plus loyal que je sache.
+
+— Hum! fit M. Verduret, voilà un mortel orné de bien des qualités, et je suis ravi à l’idée que je vais faire sa connaissance. Car, il faut que je vous l’avoue, je lui ai écrit en votre nom un petit billet pour le prier de venir jusqu’ici, et il a fait répondre qu’il viendrait.
+
+<p align="right" aria-hidden="true">
+  115
+</p>
+
+* * *
+
+— Quoi! s’écria Prosper étourdi, vous pouvez supposer…
+
+— Oh! je ne suppose rien. Seulement, il faut que je voie ce jeune homme. Même, j’ai dans la tête, et je vais vous soumettre un petit plan de conversation…
+
+Un coup de sonnette coupa la parole à M. Verduret.
+
+— Sacrebleu! dit-il, le voici; adieu mon plan! Où me cacher pour entendre et pour voir?
+
+— Là, dans ma chambre, en laissant la porte ouverte et la portière baissée.
+
+Un second coup de sonnette retentit.
+
+— J’y vais! j’y vais! cria le caissier.
+
+— Sur votre vie, Prosper, dit M. Verduret d’un ton à faire pénétrer la conviction dans l’esprit le plus rebelle, sur votre vie, pas un mot à cet homme de vos projets ni de moi. Soyez, pour lui, découragé, faible, hésitant…
+
+Et il disparut pendant que Prosper courait ouvrir à Raoul.
+
+Le portrait de M. de Lagors n’avait pas été flatté par son ami. Jamais plus heureuse physionomie ne fut au service d’un noble caractère.
+
+À vingt-quatre ans, qu’il se donnait, Raoul en paraissait vingt à peine. De taille moyenne, il était admirablement pris. D’abondants cheveux châtain clair, bouclaient naturellement autour de son front intelligent. La franchise et la fierté éclataient dans ses grands yeux bleus.
+
+Son premier mouvement fut de se jeter au cou du caissier.
+
+— Pauvre cher ami, disait-il en lui serrant les mains, pauvre cher Prosper!…
+
+Cependant, sous ces démonstrations affectueuses, perçait une certaine contrainte qui, si elle échappait au caissier, devait être remarquée par M. Verduret.
+
+Une fois assis dans le salon:
+
+— Ta lettre, mon ami, poursuivit Raoul, m’a fait un mal affreux. J’ai été épouvanté. Je me suis dit: devient-il fou? Alors, j’ai tout quitté; j’accours.
+
+Prosper semblait à peine entendre, préoccupé de cette
+
+<p align="right" aria-hidden="true">
+  116
+</p>
+
+* * *
+
+lettre qu’il n’avait pas écrite. Que lui avait-on fait dire? Qu’était-ce donc que cet homme dont il avait accepté le concours?
+
+— Manquerais-tu de courage? continuait M. de Lagors. Pourquoi désespérer? À notre âge, il est temps encore de recommencer sa vie. Tu as des amis quand même. Si je suis venu, c’est que je voulais te dire: Compte sur moi. Je suis riche, la moitié de ma fortune est à ta disposition.
+
+Cette offre généreuse, faite en ce moment avec la plus noble simplicité, toucha profondément Prosper.
+
+— Merci, Raoul, répondit-il d’une voix émue, merci! Malheureusement tout l’argent de la terre ne me servirait à rien en ce moment.
+
+— Comment cela? Quels sont donc tes projets? Te proposerais-tu de rester à Paris?
+
+— Je ne sais, mon ami, je n’ai pas de projets; j’ai la tête perdue.
+
+— Je te l’ai dit, reprit vivement Raoul, il faut recommencer ta vie. Excuse ma franchise, c’est celle de l’amitié; tant que ce vol mystérieux ne sera pas expliqué, rester à Paris est impossible.
+
+— Et si on ne l’explique jamais?
+
+— Raison de plus pour te faire oublier. Tiens, je causais de toi, il y a une heure, avec Clameran; tu es injuste envers lui, car il t’aime. À la place de Prosper, me disait-il, je ferais argent de tout, je partirais pour l’Amérique, je ferais fortune et je reviendrais écraser de mes millions ceux qui m’ont soupçonné.
+
+Ce conseil révoltait la fierté de Prosper. Il n’éleva cependant aucune objection. Les paroles de cet inconnu qui écoutait en ce moment même lui revenaient à la mémoire.
+
+— Eh bien! insista Raoul.
+
+— Je réfléchirai, murmura le caissier, je verrai… je voudrais savoir ce que dit M. Fauvel.
+
+— Mon oncle!… Tu sais que depuis que j’ai décliné la proposition qu’il me faisait d’entrer dans ses bureaux
+
+<p align="right" aria-hidden="true">
+  117
+</p>
+
+* * *
+
+nous sommes presque brouillés. Voici un mois au moins que je n’ai mis les pieds chez lui; mais j’ai eu de ses nouvelles…
+
+— Par qui?
+
+— Par ton protégé, le jeune Cavaillon. Mon oncle, depuis l’affaire, est, à ce qu’il paraît, plus consterné que toi. C’est à peine si on le voit dans les bureaux, on dirait qu’il relève de quelque terrible maladie.
+
+— Et M<sup>me</sup> Fauvel, et… — le caissier hésita — et Mlle Madeleine.
+
+— Oh! fit Raoul d’un ton léger, ma tante est toujours dévote; elle fait dire des messes à l’intention du coupable. Quant à ma belle et glaciale cousine, elle ne saurait s’occuper de détails vulgaires, toute absorbée qu’elle est par les préparatifs du bal travesti que donnent après-demain MM. Jandidier. Elle a déniché, m’a dit une de ses amies, une couturière de génie, inconnue, qui lui fait un costume de fille d’honneur de Catherine de Médicis, qui est une merveille.
+
+Il est certain que l’excès même de la souffrance, engourdissant la pensée, amène une sorte d’insensibilité. Prosper avait terriblement souffert, cependant ce dernier coup l’atterra.
+
+— Madeleine!… murmura-t-il, Madeleine!…
+
+M. de Lagors ne crut pas devoir remarquer l’exclamation; il s’était levé.
+
+— Il faut que je te quitte, mon cher Prosper, dit-il; samedi, je verrai ces dames au bal, et je te donnerai des nouvelles. D’ici là, du courage et souviens-toi que, quoi qu’il arrive, tu peux compter sur moi.
+
+Une dernière fois, Raoul serra les mains de Prosper avant de se retirer. Il devait être déjà dans la rue que le malheureux caissier restait encore debout à la même place, immobile, anéanti.
+
+Il fallut, pour le tirer de ses sombres méditations, la voix railleuse de l’homme aux favoris roux, qui était venu se placer devant lui.
+
+— Voilà les amis! disait M. Verduret.
+
+<p align="right" aria-hidden="true">
+  118
+</p>
+
+* * *
+
+— Oui!… répondit Prosper avec amertume. Et cependant, vous l’avez entendu, il m’a offert la moitié de sa fortune.
+
+M. Verduret haussa les épaules d’un air de compassion.
+
+— C’est mesquin de sa part, dit-il. Que n’offrait-il, pendant qu’il y était, sa fortune entière? Ces offres-là n’engagent pas. Cependant je suis persuadé que ce joli garçon donnerait bien dix beaux billets de mille francs pour savoir l’Océan entre vous et lui.
+
+— Lui! monsieur… et pourquoi?
+
+— Qui sait? peut-être pour cette même raison qui l’a engagé à vous bien faire remarquer que depuis un mois il n’a pas mis le pied chez son oncle.
+
+— Mais c’est la vérité, monsieur, j’en suis sûr.
+
+— Naturellement! répondit M. Verduret, d’un air goguenard. Mais, tenez, reprit-il sérieusement, en voici assez sur ce joli garçon; j’ai sa mesure, c’est tout ce que je voulais. Maintenant, vous allez, s’il vous plaît, changer de costume et nous irons ensemble rendre visite à M. Fauvel.
+
+Cette proposition sembla révolter Prosper.
+
+— Jamais! s’écria-t-il, avec une violence extraordinaire. Non, jamais! je ne saurais prendre sur moi de subir la vue de ce misérable.
+
+Cette résistance ne surprit pas M. Verduret.
+
+— Je vous comprends, dit-il, et je vous excuse, mais j’espère que vous reviendrez sur ce premier mouvement. De même que j’ai voulu voir M. de Lagors, je veux voir M. Fauvel; il le faut, entendez-vous? Êtes-vous faible à ce point de ne pouvoir vous contraindre cinq minutes? Je me présenterai comme un de vos parents, vous n’aurez pas un mot à dire.
+
+— S’il le faut absolument, fit Prosper, si vous le voulez…
+
+— Oui, je le veux. Allons, morbleu! un peu d’assurance, donc, et de la confiance. Vite, allez faire un brin de toilette, il se fait tard, j’ai faim, nous déjeunerons en route, tout en causant.
+
+<p align="right" aria-hidden="true">
+  119
+</p>
+
+* * *
+
+Le caissier venait à peine de passer dans sa chambre à coucher, quand un nouveau coup de sonnette retentit.
+
+M. Verduret alla ouvrir. C’était le portier; il tenait à la main un pli assez volumineux.
+
+— Voilà, dit-il, une lettre qu’on a apportée ce matin pour M. Bertomy, j’ai été, quand je l’ai revu, tellement saisi, que je n’ai pas songé à la lui remettre. C’est tout de même une drôle de lettre, n’est-ce pas, monsieur?
+
+Lettre singulière en effet! L’adresse n’était pas écrite à la main; les mots qui la composaient étaient formés avec des lettres imprimées, découpées soigneusement sur un livre ou sur un journal, et collées sur l’enveloppe.
+
+— Oh! fit M. Verduret, qu’est ceci?
+
+Et s’adressant au concierge:
+
+— Asseyez-vous un instant ici, mon brave, dit-il, je reviens.
+
+Il laissa le concierge dans la salle à manger et passa dans le salon, dont il eut soin de refermer la porte. Prosper s’y trouvait; il avait entendu la sonnette d’abord, puis un bruit de voix, et il venait savoir ce qu’il se passait.
+
+— Voici ce qu’on a apporté pour vous, fit M. Verduret.
+
+Et sans façon il brisa l’enveloppe.
+
+Des billets de banque s’en échappèrent; il les compta, il y en avait dix.
+
+Prosper était devenu pourpre.
+
+— Qu’est-ce que cela signifie? dit-il.
+
+— Nous allons le savoir, répondit M. Verduret, voici un mot joint à l’envoi.
+
+Ce billet, comme l’adresse, était composé de lettres et de mots imprimés, découpés et collés.
+
+Il était court, mais explicite:
+
+« Mon cher prosper, un ami qui connaît l’horreur de votre situation vous fait passer ce secours. Il est un cœur, sachez-le, qui a partagé toutes vos angoisses. Partez, quittez la France, vous êtes jeune, l’avenir vous appartient. Partez, et puisse cet argent vous porter bonheur. »
+
+<p align="right" aria-hidden="true">
+  120
+</p>
+
+* * *
+
+À mesure que lisait, à haute voix, l’homme aux favoris roux, la colère de Prosper grandissait. Colère folle, car il ne savait comment s’expliquer les événements qui se succédaient, et il sentait sa raison s’égarer.
+
+— Tout le monde veut donc que je parte, s’écria-t-il: c’est donc une conjuration!
+
+M. Verduret dissimula un sourire de satisfaction.
+
+— Enfin! fit-il, vous ouvrez les yeux, vous commencez à comprendre. Oui, mon enfant, il est des gens qui vous haïssent pour tout le mal qu’il vous ont fait; oui, il est des gens pour qui votre présence à Paris serait une perpétuelle menace, et qui veulent vous éloigner à tout prix.
+
+— Mais quels sont ces gens, monsieur? dites-le moi; dites-moi qui se permet de m’envoyer cet argent.
+
+L’ami de M. Bertomy le père hocha tristement la tête.
+
+— Si je le savais, mon cher Prosper, répondit-il, ma tâche serait remplie, car je saurais alors qui a commis le vol dont vous avez été accusé. Mais nous allons chercher.
+
+Je tiens enfin un de ces indices qui deviennent tôt ou tard une charge accablante. Je n’avais que des déductions plus ou moins probables; j’ai maintenant un fait qui me prouve que je ne me trompais pas. Je marchais dans les ténèbres; à présent, j’ai une lueur pour me guider.
+
+M. Verduret, cet homme aux apparences triviales, à l’entrain facile du commis voyageur, trouvait, quand bon lui semblait, de ces accents impérieux qui imposent aux âmes faibles et dominent les esprits malades.
+
+Prosper, en l’écoutant, reprenait quelque assurance et sentait, en lui, renaître l’espoir.
+
+— Il s’agit, poursuivait M. Verduret, de tirer parti de cet indice que nous livre l’imprudence de vos ennemis. Commençons par interroger le portier.
+
+Il ouvrit la porte et appela:
+
+— Hé! mon brave! avancez un peu s’il vous plaît.
+
+Le concierge, homme fort poli, s’approcha en tortil-
+
+<p align="right" aria-hidden="true">
+  121
+</p>
+
+* * *
+
+lant sa casquette, fort intrigué de l’autorité que s’arrogeait cet inconnu chez son locataire.
+
+— Qui vous a remis le pli que vous venez de monter? demanda M. Verduret.
+
+— Un commissionnaire qui m’a dit que la course était payée.
+
+— Le connaissez-vous?
+
+— Je ne connais que lui: c’est le commissionnaire qui a ses crochets chez le marchand de vin du coin de la rue Pigalle.
+
+— Allez me le chercher.
+
+Pendant que le concierge sortait en courant, M. Verduret avait tiré son calepin de sa poche, et consultait alternativement et les billets de banque épars sur la table, et une page toute couverte de chiffres.
+
+Son examen terminé:
+
+— Ces billets, dit-il d’un ton décidé, ne sont pas envoyés par l’auteur de la soustraction.
+
+— Vous croyez, monsieur?
+
+— J’en suis persuadé; à moins, toutefois, que ce voleur ne soit doué d’une pénétration et d’une prévoyance extraordinaires; ce qui est certain, positif, c’est qu’aucun de ces billets de mille francs ne faisait partie des trois cent cinquante qui ont été volés dans votre caisse.
+
+— Cependant, hasarda Prosper, qui ne s’expliquait pas la certitude de son protecteur, cependant…
+
+— Il n’y a pas de cependant; j’ai là le numéro d’ordre de tous les billets…
+
+— Quoi! lorsque moi-même je ne l’avais pas!
+
+— La Banque l’avait, mon jeune ami, et c’est fort heureux. Quand on s’occupe d’une affaire, on doit tout prévoir et ne rien oublier. Ce n’est pas une excuse pour un homme d’esprit, que de dire, quand il est tombé dans quelque bévue: tiens, je n’y avais pas pensé! J’ai songé à la Banque.
+
+Si Prosper avait eu d’abord quelques répugnances à s’abandonner entièrement à l’ami de son père, ces répugnances, une à une, s’évanouissaient.
+
+<p align="right" aria-hidden="true">
+  122
+</p>
+
+* * *
+
+Il comprenait que, seul, à peine maître de soi, livré aux inspirations de son inexpérience, jamais il n’aurait eu la patiente perspicacité de ce personnage singulier.
+
+Lui, cependant, poursuivait, se parlant à lui-même, paraissant avoir absolument oublié la présence de Prosper:
+
+— Donc, l’envoi ne venant pas du voleur, ne peut venir, c’est évident, que de l’autre personne, qui était près de la caisse au moment du crime, qui n’a pu l’empêcher, et qui maintenant à des remords. La probabilité de deux personnes lors du vol, probabilité affirmée par l’éraillure, se change maintenant en certitude indiscutable. Ergo, j’avais raison.
+
+Le caissier écoutait de toutes ses forces, faisant des efforts d’imaginative pour comprendre quelque chose à ce monologue qu’il n’osait troubler.
+
+— Cherchons, continuait le gros homme, cherchons quelle peut être cette seconde personne, que sa conscience taquine, et qui cependant n’a rien osé révéler.
+
+Il prit la lettre, et fort lentement, à trois ou quatre reprises, la lut, en scandant les phrases, en pesant tous les mots.
+
+— Évidemment, murmurait-il, bien évidemment, cette lettre a été composée par une femme. Jamais un homme, voulant rendre service à un autre homme, et lui envoyant de l’argent, n’aurait mis ce mot: secours, blessant s’il en est. Un homme aurait mis: prêt, subside, fonds, ou n’importe quel équivalent, mais secours, jamais. Seule, une femme, ignorante des sottes susceptibilités masculines, a pu trouver toute naturelle l’idée que représente ce mot. Quant à cette phrase: « Il est un cœur, etc., » elle ne peut avoir été pensée que par une femme.
+
+Prosper, cette fois, avait pu suivre le travail d’inductions de son protecteur.
+
+— Vous vous trompez, je crois, monsieur, dit-il, aucune femme ne peut être mêlée à cette affaire.
+
+M. Verduret ne releva pas l’interruption. Peut-être ne l’avait-il pas entendue, peut-être ne lui convenait-il pas de discuter ses opinions.
+
+<p align="right" aria-hidden="true">
+  123
+</p>
+
+* * *
+
+— Tâchons, à présent, poursuivait-il, de découvrir où ont été découpés les mots qui composent ces trois phrases.
+
+Il s’approcha de la fenêtre et se mit à étudier les caractères collés dessus avec l’attention scrupuleuse d’un savant en us qui cherche à déchiffrer un vieux manuscrit à demi effacé.
+
+— Petit caractère, disait-il, très-délicat, très-net, impression très-soignée, papier assez mince et fortement satiné! Ces mots n’ont été découpés, par conséquent ni dans un journal, ni même dans un volume de roman, ni même dans un livre de vente courante. Cependant, je les ai vus ces caractères-là, je les connais, Didot en emploie souvent de pareils ainsi que Mame, de Tours.
+
+Il s’arrêta, la bouche demi béante, la prunelle dilatée, faisant à sa mémoire un de ces énergiques appels qui concentrent la pensée sur un point unique.
+
+Tout à coup, il se frappa le front.
+
+— J’y suis, disait-il, j’y suis! Comment, diable! n’ai-je pas aperçu cela du premier coup d’œil? Tous ces mots ont été découpés dans un paroissien. Au surplus, nous allons bien voir, il est un moyen de vérification.
+
+Alors, délicatement, du bout de sa langue, il mouilla quelques-uns des mots collés sur le papier, et lorsqu’il vit la colle assez humide, s’aidant d’une épingle il réussit à les détacher. À l’envers d’un de ces mots, un mot latin était imprimé: Deus.
+
+— Eh! eh! fit-il avec un petit rire de satisfaction, j’avais deviné. Papa Tabaret, s’il était ici, serait content. Mais qu’est devenu le paroissien mutilé? L’a-t-on brûlé? Non, parce qu’un livre relié ne brûle pas comme cela. On l’aura jeté dans quelque coin.
+
+M. Verduret s’interrompit; le concierge rentrait, ramenant le commissionnaire du coin de la rue Pigalle.
+
+— Ah! tu arrives à propos, mon garçon, dit le gros homme de son air le plus ouvert.
+
+Et présentant au commissionnaire l’enveloppe de la lettre:
+
+<p align="right" aria-hidden="true">
+  124
+</p>
+
+* * *
+
+— Te souviens-tu, lui demanda-t-il, d’avoir apporté ce pli ici ce matin?
+
+— Parfaitement, monsieur, d’autant mieux que j’avais remarqué l’adresse: on n’en voit pas beaucoup de pareilles, n’est-il pas vrai?
+
+— Je suis de ton avis. Et qui t’a chargé de l’apporter? Est-ce un homme, est-ce une femme?
+
+— Non, monsieur, c’est un commissionnaire.
+
+Cette réponse, qui égaya singulièrement le concierge, ne fit même pas sourire M. Verduret.
+
+— Un commissionnaire, poursuivit-il, connais-tu ce collègue?
+
+— Je ne l’avais jamais tant vu.
+
+— Comment est-il?
+
+— Ma foi! monsieur, ni grand ni petit; il était vêtu d’une veste de velours verdâtre, il avait sa médaille.
+
+— Diable! mon garçon, le signalement est vague et peut s’appliquer à beaucoup de commissionnaires; seulement ce collègue t’a peut-être dit qui l’avait chargé de cette commission.
+
+— Non, monsieur. Il m’a seulement dit, en me mettant dix sous dans la main: Tiens, porte cela rue Chaptal, au 39, c’est un cocher qui me l’a remis sur le boulevard… Dix sous! je suis sûr qu’il a gagné sur moi.
+
+Cette réponse sembla un peu déconcerter M. Verduret. Tant de précautions prises, pour faire parvenir cette lettre à Prosper l’inquiétaient et dérangeaient ses plans.
+
+— Enfin, reprit-il, reconnaîtrais-tu le commissionnaire de ce matin?
+
+— Pour cela, oui, monsieur, si je le voyais.
+
+— Alors, attention. Combien ton état te rapporte-t-il par jour?
+
+— Dame! monsieur, je ne sais pas au juste, mais j’ai un bon coin, allez; enfin, mettons entre huit et dix francs par jour.
+
+— Eh bien! mon garçon, je vais te donner, moi, dix francs par jour, rien que pour te promener, c’est-à-dire pour chercher le commissionnaire de ce matin. Tous les
+
+<p align="right" aria-hidden="true">
+  125
+</p>
+
+* * *
+
+soirs, vers huit heures, tu viendras à l’hôtel du Grand-Archange, sur le quai Saint-Michel, me rendre compte de tes promenades et te faire payer. Tu demanderas M. Verduret. Si tu trouves notre homme, je te donnerai cinquante francs. Le marché te convient-il?
+
+— Peste! je le crois bien, bourgeois.
+
+— Alors, ne perds pas une minute, en route!
+
+Bien qu’ignorant le plan de M. Verduret, Prosper commençait à s’expliquer le sens de ses investigations. Sa vie dépendait pour ainsi dire du succès, et cependant, il l’oubliait presque pour admirer la vivacité de ce singulier aide que lui avait légué son père, son sang-froid goguenard, la sûreté de ses inductions, la fertilité de ses expédients, la rapidité de ses manœuvres.
+
+— Ainsi, monsieur, demanda-t-il, quand le commissionnaire se fut retiré, vous croyez toujours découvrir dans tout ce qui m’arrive la main d’une femme?
+
+— Plus que jamais, et d’une femme dévote, qui plus est, d’une femme, dans tous les cas, qui possédait au moins deux paroissiens, puisque pour vous écrire elle en a mutilé un.
+
+— Et vous avez quelque espoir de le retrouver?
+
+— Dites un grand espoir, mon cher Prosper, grâce à des moyens que j’ai de recherches immédiates, moyens que je vais utiliser sur-le-champ.
+
+Il s’assit sur ces derniers mots, et rapidement griffonna au crayon deux ou trois lignes sur une petite bande de papier qu’il roula et glissa dans son gilet.
+
+— Vous êtes prêt, demanda-t-il, pour notre visite à M. Fauvel? Oui? Alors partons, nous aurons bien gagné notre déjeuner.
+
+<p align="right" aria-hidden="true">
+  126
 </p>
 
 * * *
