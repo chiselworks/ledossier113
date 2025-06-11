@@ -3579,7 +3579,7 @@ Lorsqu’il eut achevé:
 Et de sa main, sur la couverture, il inscrivit le numéro d’ordre: Dossier no 113.
 
 
-<h2 id="VI" align="center" style="font-weight: 100; border: none; font-size: 2em;">
+<h2 id="VII" align="center" style="font-weight: 100; border: none; font-size: 2em;">
   VII
 </h2>
 
@@ -4125,6 +4125,466 @@ Il s’assit sur ces derniers mots, et rapidement griffonna au crayon deux ou tr
 
 <p align="right" aria-hidden="true">
   126
+</p>
+
+* * *
+
+<h2 id="VIII" align="center" style="font-weight: 100; border: none; font-size: 2em;">
+  VIII
+</h2>
+
+Lorsqu’il avait parlé de l’abattement extraordinaire de M. André Fauvel, Raoul de Lagors n’avait rien exagéré.
+
+Depuis le jour funeste, où, sur sa dénonciation, son caissier avait été arrêté, le banquier, cet homme actif jusqu’à la turbulence, en proie à la plus noire mélancolie, avait absolument cessé de s’occuper de ses affaires.
+
+Lui, l’homme de la famille par excellence, il ne paraissait plus au milieu de sa famille qu’à l’heure des repas; il mangeait à la hâte quelques bouchées et aussitôt disparaissait.
+
+Enfermé dans son cabinet, il faisait défendre sa porte. Ses traits contractés, son insouciance de toutes choses, ses continuelles distractions, trahissaient les préoccupations d’une idée fixe ou l’empire tyrannique de quelque secrète douleur.
+
+Le jour de la mise en liberté de Prosper, sur les trois heures, M. Fauvel était comme de coutume assis à son bureau, les coudes sur la tablette, le front dans les mains, l’œil perdu dans le vide, lorsque son garçon de bureau entra précipitamment, l’air effaré.
+
+— Monsieur, disait cet homme, c’est l’ancien caissier, M. Bertomy, qui est là avec un de ses parents; il veut vous voir absolument, vous parler.
+
+Le banquier, sur ces mots, se dressa d’un bond, plus bouleversé que s’il eût vu la foudre tomber à trois pas de lui.
+
+Prosper! s’écria-t-il, d’une voix étranglée par la colère, comment, il ose…
+
+<p align="right" aria-hidden="true">
+  127
+</p>
+
+* * *
+
+Mais il comprit que devant son garçon de bureau il ne pouvait se laisser aller aux emportements de son caractère, il réussit à se dominer et c’est d’une voix relativement calme, qu’il ajouta:
+
+— Faites entrer ces messieurs.
+
+Si M. Verduret, ce gros homme à l’air jovial, avait compté sur un curieux et émouvant spectable, son attente ne fut pas trompée.
+
+Rien de terrible comme l’attitude de ces deux hommes mis en présence: le banquier rouge, le visage tuméfié comme s’il allait être frappé d’une attaque d’apoplexie; Prosper plus livide que le blessé qui vient de perdre sa dernière goutte de sang.
+
+Immobiles, frémissants, séparés par trois pas, à peine, ils échangeaient des regards chargés d’une haine mortelle, prêts à se précipiter l’un sur l’autre.
+
+Pendant une bonne minute, au moins, M. Verduret examina curieusement ces deux ennemis, avec le détachement et le sang-froid d’un philosophe qui, dans les transports les plus violents de la passion humaine, ne voit plus qu’un sujet d’études et de méditations.
+
+À la fin, le silence devenant de plus en plus menaçant, il se décida à prendre la parole, s’adressant au banquier:
+
+— Vous savez sans doute, monsieur, dit-il, que mon jeune parent vient d’être relâché?
+
+— Oui, répondit M. Fauvel qui faisait, pour ne pas éclater, les plus louables efforts; oui, faute de preuves suffisantes.
+
+— Précisément, monsieur; or ce considérant: « faute de preuves, » relaté dans l’arrêt de non-lieu, perd si bien l’avenir de mon parent, qu’il est décidé à partir pour l’Amérique.
+
+À cette déclaration, la physionomie de M. Fauvel changea brusquement. Ses traits se détendirent comme s’il eût été soulagé de quelque affreuse angoisse.
+
+— Ah! il part, répéta-t-il à plusieurs reprises, il part!…
+
+<p align="right" aria-hidden="true">
+  128
+</p>
+
+* * *
+
+Il n’y avait pas à se méprendre à l’intonation. Le mot: « il part, » ainsi prononcé, était une mortelle injure.
+
+M. Verduret voulut ne rien remarquer.
+
+— Il me paraît, reprit-il d’un ton léger, que la détermination de mon parent est raisonnable. J’ai voulu seulement, qu’avant de quitter Paris, il vint présenter ses respects à son ancien patron.
+
+Un sourire amer plissa les lèvres du banquier.
+
+— M. Bertomy, répliqua-t-il, pouvait s’épargner cette démarche pénible pour nous deux. Je n’avais rien à entendre, je n’ai rien à lui dire.
+
+C’était un congé formel, et M. Verduret le comprenant ainsi, salua M. Fauvel et sortit en entraînant Prosper, qui n’avait pas prononcé une syllabe.
+
+Dans la rue, seulement, le caissier recouvra la parole.
+
+— Vous l’avez voulu, monsieur, fit-il d’une voix sourde, Vous l’avez exigé, je vous ai suivi. Êtes-vous content? En suis-je plus avancé, d’avoir à ajouter cette humiliation sanglante à toutes les autres!
+
+— Vous, non, répondit M. Verduret, moi, oui. Je ne pouvais arriver au banquier sans vous, et à cette heure je sais ce que j’avais intérêt à savoir: j’ai la certitude que M. André Fauvel n’est pour rien dans le vol.
+
+— Oh! monsieur, objecta Prosper, on peut feindre.
+
+— Sans doute, mais pas à ce point. Et ce n’est pas tout: j’avais besoin, pour mon projet ultérieur, de savoir si votre patron serait accessible à certains soupçons. Maintenant, je puis hardiment répondre: Oui.
+
+Prosper et son compagnon s’étaient arrêtés pour causer plus à l’aise, au coin de la rue Laffitte, au milieu d’un vaste terrain devenu libre depuis de récentes démolitions.
+
+M. Verduret paraissait inquiet et tout en parlant, il détournait à tout moment la tête comme s’il eût attendu quelqu’un.
+
+Bientôt, il laissa échapper une exclamation de satisfaction.
+
+À l’extrémité de cette place improvisée, venait d’apparaître Cavaillon, il était tête nue, il courait.
+
+<p align="right" aria-hidden="true">
+  129
+</p>
+
+* * *
+
+Il était, tout à la fois, si pressé et si alarmé qu’il ne songea ni à féliciter son grand ami Prosper, ni même à lui serrer la main. Il s’adressa immédiatement à M. Verduret.
+
+— Elles sont parties, dit-il.
+
+— Depuis longtemps?
+
+— Non, depuis un quart d’heure à peu près.
+
+— Diable! fit M. Verduret, nous n’avons pas une minute à perdre, cela étant.
+
+Et remettant à Cavaillon le billet qu’il avait écrit quelques heures plus tôt chez Prosper:
+
+— Tenez, dit-il, faites-lui passer ceci et rentrez vite, qu’on ne s’aperçoive pas de votre absence; sortir sans chapeau est une imprudence qui peut donner l’éveil.
+
+Le petit Cavaillon ne se le fit pas répéter deux fois, et il partit en courant, comme il était venu. Prosper était stupéfait.
+
+— Quoi! fit-il, vous connaissez Cavaillon?
+
+— Il paraît, répondit M. Verduret avec un sourire. Mais ce n’est pas le moment de causer, arrivez, hâtons-nous!
+
+— Où allons-nous encore?
+
+— Vous le saurez; allons, des jambes, des jambes!…
+
+Lui-même donnait l’exemple, et c’est presque au pas gymnastique qu’il remontait la rue Lafayette. Tout en marchant, tout en courant, plutôt, il parlait, s’inquiétant assez peu d’être ou non entendu de Prosper.
+
+— Ah! voilà! disait-il, ce n’est pas en restant les deux pieds dans le même soulier qu’on gagne des prix à la course. Une piste trouvée, on ne doit plus prendre une minute de repos. Le sauvage qui dans ses forêts vierges a relevé le pied d’un ennemi le suit sans désemparer, sachant que le vent qui souffle ou la pluie qui tombe suffisent pour effacer l’empreinte. De même pour nous, le moindre événement peut faire disparaître les traces que nous suivons.
+
+Arrivé devant le no 81, M. Verduret s’interrompit et s’arrêta du même coup.
+
+<p align="right" aria-hidden="true">
+  130
+</p>
+
+* * *
+
+— C’est ici, dit-il à Prosper; entrons…
+
+Ils montèrent et s’arrêtèrent au second étage, devant une porte ornée d’un écusson de cuivre sur lequel on lisait: Modes et confections.
+
+Le long de l’huisserie pendait un cordon de sonnette superbe, mais M. Verduret n’y toucha pas. Du bout du doigt il frappa très-légèrement d’une certaine façon, et aussitôt, comme s’il y eût eu quelqu’un à guetter ce signal, la porte s’ouvrit.
+
+C’était une femme qui ouvrait. Elle pouvait avoir une quarantaine d’années, sa mise était simple, mais très-convenable. Sans bruit, elle fit passer Prosper et son compagnon dans une petite salle à manger fort propre, sur laquelle ouvraient plusieurs portes.
+
+Devant M. Verduret, cette femme s’était inclinée très-bas, comme une protégée devant son protecteur.
+
+Il répondit à peine au salut. Des yeux il interrogeait la femme. Son regard disait:
+
+— Eh bien?
+
+La femme inclina affirmativement la tête.
+
+— Oui.
+
+— Là, n’est-ce pas? fit M. Verduret à voix, basse, en montrant une des portes.
+
+— Non, répondit la femme sur le même ton, de l’autre côté, dans le petit salon.
+
+M. Verduret, aussitôt, ouvrit la porte qui lui était indiquée, et doucement il poussa Prosper dans le petit salon, en murmurant à son oreille:
+
+— Entrez… et du sang-froid.
+
+Mais à quoi bon des recommandations. Au premier regard jeté dans cette pièce où on le poussait malgré lui, sans l’avoir averti de rien, Prosper jeta un grand cri:
+
+— Madeleine!…
+
+C’était bien la nièce de M. Fauvel, en effet, belle, plus que jamais, de cette beauté calme et sereine qui impose l’admiration et commande le respect.
+
+Debout, au milieu du salon, près d’une table couverte
+
+<p align="right" aria-hidden="true">
+  131
+</p>
+
+* * *
+
+d’étoffes, elle disposait les plis d’une jupe de velours rouge lamé d’or, sans doute la jupe de son costume de fille d’honneur de Catherine de Médicis.
+
+À la vue de Prosper, tout son sang afflua à son visage, ses beaux yeux se fermèrent à demi, comme si elle eût été près de s’évanouir, et les forces lui manquèrent à ce point, qu’elle fut obligée de s’appuyer à la table pour ne pas tomber.
+
+Madeleine n’était pas, et Prosper ne pouvait l’ignorer, de ces femmes fortes dont le cœur glacé laisse l’esprit toujours libre, qui ont des sensations, jamais un sentiment vrai, héroïnes de romans qui trouvent un expédient pour toutes les circonstances.
+
+Âme tendre et rêveuse, elle devait aux particularités de sa vie une sensibilité exquise, presque maladive. Mais elle était fière, mais elle était incapable d’une transaction de conscience. Quand le devoir avait parlé, elle obéissait.
+
+Sa défaillance ne dura qu’un moment, et bientôt ses yeux si tendres n’exprimèrent plus que la hauteur et le ressentiment. C’est d’une voix offensée qu’elle dit:
+
+— Qui vous a fait si hardi, monsieur, d’oser épier mes démarches? Comment vous êtes-vous permis de me suivre, de pénétrer dans cette maison?
+
+Certes, Prosper n’était pas coupable. Il eut voulu d’un mot expliquer tout ce qui s’était passé. L’impuissance où il était d’exprimer sa pensée lui fit garder le silence.
+
+— Vous m’aviez juré, poursuivit Madeleine, sur l’honneur, de ne jamais chercher à me revoir. Est-ce ainsi que vous tenez votre parole?
+
+— Je l’avais juré, mademoiselle, mais…
+
+Il s’arrêta.
+
+— Oh! parlez!
+
+— Tant d’événements sont survenus depuis ce jour, que j’ai pu croire oublié, ne fût-ce que pour une heure, ce serment arraché à ma faiblesse. C’est au hasard, c’est, du moins, à une volonté qui n’est pas la mienne, que je dois le bonheur de me trouver une fois encore près de
+
+<p align="right" aria-hidden="true">
+  132
+</p>
+
+* * *
+
+vous. Hélas! en vous voyant, mon cœur a tressailli de joie intérieure. Je ne pensais pas, non, je ne pouvais penser, qu’impitoyable, autant et plus que le monde, vous me repousseriez, lorsque je suis si malheureux.
+
+Jeté moins violemment hors du prévu, Prosper eût pu suivre dans les yeux de Madeleine, ces beaux yeux si longtemps arbitres de sa destinée, la trace des combats qui se livraient en elle.
+
+C’est pourtant d’une voix assez ferme qu’elle reprit:
+
+— Vous me connaissez assez, Prosper, pour savoir que nul coup ne peut vous frapper sans m’atteindre moi-même. Vous souffrez… je vous plains comme une sœur plaint un frère tendrement aimé.
+
+— Une sœur! fit amèrement Prosper, oui, c’est bien là le mot prononcé le jour où vous m’avez banni de votre présence. Une sœur! Alors pourquoi durant trois années m’avoir bercé des plus décevantes illusions? Étais-je donc un frère pour vous ce jour où nous allions ensemble en pèlerinage à Notre-Dame-de-Fourvières, ce jour où après nous être juré au pied de l’autel de nous aimer éternellement, vous me passiez au cou une relique bénie, en me disant: « Pour l’amour de moi, gardez-la toujours, elle vous portera bonheur. »
+
+Madeleine essaya de l’interrompre d’un geste doux et suppliant; il ne la vit pas.
+
+— Il y a un an de cela, poursuivait-il, et moins d’un mois après vous me rendiez ma parole et vous m’arrachiez la promesse de ne vous revoir jamais. Si je savais encore par quelle action, par quelle pensée j’ai pu vous déplaire? Mais vous n’avez rien daigné m’expliquer. Vous me chassiez, et pour vous obéir j’ai laissé croire que c’était moi qui volontairement m’éloignais. Vous m’avez dit qu’un invincible obstacle s’élevait entre nous, et je vous ai cru. Fou que j’étais! L’obstacle, c’est votre cœur, Madeleine. Pourtant, j’ai toujours conservé pieusement la médaille bénie… Elle ne m’a pas porté bonheur.
+
+Plus immobile et plus blanche qu’une statue, Madeleine courbait le front sous cet orage d’une passion im-
+
+<p align="right" aria-hidden="true">
+  133
+</p>
+
+* * *
+
+mense. De grosses larmes roulaient silencieuses le long de ses joues.
+
+— Je vous avais dit d’oublier, murmura-t-elle.
+
+— Oublier! reprit Prosper, révolté comme s’il eût entendu un blasphème, oublier! Eh! le puis-je? Est-ce qu’il est en mon pouvoir d’arrêter, par le seul effort de ma volonté, la circulation de mon sang? Ah! vous n’avez jamais aimé. Pour oublier, comme pour arrêter les battements de mon cœur, il n’est qu’un moyen… mourir.
+
+Ce mot, ainsi prononcé, avec l’accent d’une résolution farouche, bouleversa Madeleine.
+
+— Malheureux! s’écria-t-elle.
+
+— Oui, malheureux! Plus malheureux mille fois que vous ne sauriez l’imaginer! Vous ne comprendrez jamais mes tortures, depuis un an que chaque matin il me faut pour ainsi dire rapprendre mon malheur, et me dire: C’en est fait, elle ne m’aime plus! Que parlez-vous d’oubli! Je l’ai cherché au fond des coupes empoisonnées, je ne l’ai pas trouvé. J’ai essayé d’éteindre ce souvenir du passé qui brûlait en moi d’une flamme dévorante; en vain. Quand le corps succombait, la pensée implacable veillait encore. Vous voyez bien que j’ai dû songer au repos, c’est-à-dire au suicide.
+
+— Je vous défends de prononcer ce mot.
+
+— On n’a rien à défendre à celui qu’on n’aime plus, Madeleine, ne le savez-vous pas?
+
+D’un geste impérieux, Madeleine l’interrompit, comme si elle eut voulu parler, et, qui sait? tout expliquer, se disculper.
+
+Mais une réflexion soudaine l’arrêta; elle eut un mouvement désespéré et s’écria:
+
+— Mon Dieu! c’est trop souffrir!
+
+— Prosper parut se méprendre au sens de cette exclamation.
+
+— Votre pitié vient trop tard, reprit-il avec une déchirante résignation. Il n’est plus de bonheur possible pour celui qui, comme moi, a entrevu des félicités divines. Rien ne saurait m’attacher à la vie. Vous avez tué
+
+<p align="right" aria-hidden="true">
+  134
+</p>
+
+* * *
+
+en moi les plus saintes croyances; je sors de prison déshonoré par mes ennemis; que devenir? Vainement j’interroge l’avenir; il n’y a plus, pour moi, ni espérances, ni promesses, ni sourires. Je regarde autour de moi, et je ne vois qu’abandon, ignominie et désespoir.
+
+— Prosper, mon ami, mon frère, si vous saviez…
+
+— Je ne sais qu’une chose, Madeleine, c’est que vous m’avez aimé, c’est que vous ne m’aimez plus, c’est que moi je vous aime!
+
+Il se tut. Il espérait une réponse. Elle ne vint pas.
+
+Mais tout à coup le silence fut troublé par un sanglot étouffé.
+
+C’était la femme de chambre de Madeleine qui, assise près de la cheminée du petit salon pleurait.
+
+Madeleine l’avait oubliée; Prosper en entrant, ébloui, stupéfié, ne l’avait pas aperçue.
+
+Il la regarda.
+
+Cette jeune fille, vêtue comme les femmes de chambre des maisons aisées, c’était, il n’y avait pas à s’y tromper, c’était Nina Gypsy.
+
+Si violente fut la commotion que ressentit Prosper, qu’il n’eut ni une exclamation, ni même une parole.
+
+L’horreur de la situation l’épouvanta. Il était là, entre les deux femmes, qui avaient décidé de sa vie, entre Madeleine, la fière héritière qu’il adorait et qui le repoussait, et Nina Gypsy, la pauvre fille qui l’aimait et qu’il dédaignait.
+
+Et elle avait tout entendu, cette malheureuse Gypsy, elle avait vu la passion de son amant pour une autre déborder en affreux regrets et en menaces insensées.
+
+Par ce qu’il souffrait, Prosper comprit ce qu’elle avait dû souffrir. Car elle était atteinte, non-seulement dans le présent, mais encore dans le passé. Quelle ne devait pas être son humiliation et sa colère, en apprenant le rôle misérable que l’amour de Prosper lui avait imposé.
+
+Et il s’étonnait que Gypsy, — la violence même, — restât là à pleurer et ne se levât pas pour protester, pour le maudire.
+
+<p align="right" aria-hidden="true">
+  135
+</p>
+
+* * *
+
+Madeleine, cependant, depuis que Prosper gardait le silence, avait réussi, à force d’énergie, à reprendre les apparences du calme.
+
+Lentement, avec des mouvements dont elle paraissait à peine avoir conscience, elle avait repris son manteau déposé sur le canapé.
+
+Lorsqu’elle fut prête à se retirer, elle s’approcha de Prosper.
+
+— Pourquoi êtes-vous venu? dit-elle. Vous et moi nous avons besoin de tout notre courage. Vous êtes malheureux, Prosper, je suis plus malheureuse que vous. Vous avez le droit de vous plaindre; je n’ai pas, moi, le droit de laisser voir une larme, et quand mon cœur est déchiré, je dois encore sourire. Vous pouvez demander des consolations à un ami, je ne puis, moi, avoir d’autre confident que Dieu.
+
+Prosper essaya de balbutier une réponse; les paroles expirèrent sur ses lèvres; il étouffait.
+
+— Je veux bien vous le dire, poursuivit Madeleine, je n’ai rien oublié. Oh! que cette certitude ne vous rende aucune espérance; il n’est pas d’avenir pour nous. Si vous m’aimez, vous vivrez. Vous n’aurez pas la barbarie d’ajouter à mes tortures la douleur de votre mort. Un jour viendra peut-être où il me sera permis de me justifier… et maintenant, ô mon frère, ô mon unique ami, adieu, adieu!…
+
+Elle se pencha en même temps vers Prosper, de ses lèvres elle effleura le front du malheureux jeune homme et sortit précipitamment, suivie de Nina Gypsy.
+
+Prosper était seul; il lui sembla qu’il s’éveillait.
+
+Alors seulement, il s’efforça de se rendre compte de ce qui venait de se passer, se demandant s’il n’était pas le jouet d’un songe, si sa raison ne l’égarait pas.
+
+Il ne pouvait méconnaître l’influence souveraine de cet homme qui, le matin même, lui était apparu pour la première fois.
+
+De quelle mystérieuse puissance disposait donc cet inconnu, pour préparer ainsi, à son gré, les événements?
+
+<p align="right" aria-hidden="true">
+  136
+</p>
+
+* * *
+
+Il semblait tout prévoir et tout deviner; il connaissait Cavaillon, il savait les démarches de Madeleine, il avait pu obliger à l’obéissance l’indépendante Gypsy.
+
+Il arriva rapidement à un tel degré d’exaspération qu’au moment où M. Verduret entra dans le petit salon, il marcha sur lui comme un furieux, pâle, menaçant, et d’une voix brève et dure, lui dit:
+
+— Qui êtes-vous?
+
+Le gros homme ne parut que très-modérément surpris de cet accès de violence.
+
+— Un ami de votre père, dit-il, ne le savez-vous pas?
+
+— Ce n’est pas une réponse, monsieur. J’ai pu dans un moment de surprise abdiquer ma volonté entre les mains d’un inconnu, mais à cette heure…
+
+— Quoi? Est-ce ma biographie que vous demandez? Ce que je suis, ce que j’ai été, ce que je pourrais être?… Que vous importe? Je vous ai dit: Je vous sauverai; l’essentiel est que je vous sauve.
+
+— Encore ai-je le droit de vous demander par quels moyens.
+
+— À quoi bon?
+
+— Afin d’accepter vos moyens, monsieur, ou de les rejeter.
+
+— Et si je vous réponds du succès!…
+
+— Cela ne suffit pas, monsieur, et il ne saurait me convenir d’être plus longtemps privé de mon libre arbitre, d’être exposé, sans être prévenu, à des épreuves comme celles d’aujourd’hui. Un homme de mon âge doit savoir ce qu’il fait.
+
+— Un homme de votre âge, Prosper, quand il est aveugle, prend un guide, et il se garde de la prétention d’enseigner le chemin à celui qui le conduit.
+
+Le ton de M. Verduret, moitié de raillerie, moitié de commisération, n’était pas fait pour calmer l’irritation croissante de Prosper.
+
+— Puisqu’il en est ainsi, s’écria-t-il, merci de vos services, monsieur, je n’en ai que faire. Si je combattais pour défendre mon honneur et ma vie, c’est que j’espé-
+
+<p align="right" aria-hidden="true">
+  137
+</p>
+
+* * *
+
+rais, quand même, que Madeleine, me reviendrait. Je sais aujourd’hui qu’entre elle et moi tout est fini; je me retire de la lutte.
+
+Si évidente était la résolution de Prosper, qu’un instant M. Verduret parut alarmé.
+
+— Vous devenez fou, prononça-t-il.
+
+— Non, malheureusement. Madeleine ne m’aime plus, que m’importe le reste.
+
+Son accent était à ce point désespéré, que M. Verduret fut ému.
+
+— Ainsi, reprit-il, vous ne soupçonnez rien? Vous n’avez pas su démêler le sens de ses paroles?
+
+Prosper eut un geste terrible.
+
+— Vous écoutiez! s’écria-t-il.
+
+— Je l’avoue.
+
+— Monsieur!…
+
+— Oui! ce n’est pas fort délicat peut-être; mais qui veut la fin veut les moyens. J’ai écouté et je m’en applaudis, puisque je puis, à présent, vous dire: Reprenez courage, Prosper, Mlle Madeleine vous aime; elle n’a jamais cessé de vous aimer.
+
+Alors même qu’il le sait, qu’il se sent perdu, près de mourir, le malade prête l’oreille aux promesses du médecin. L’affirmation si précise de M. Verduret éclaira d’une lueur d’espoir la douleur de Prosper.
+
+— Oh! murmura-t-il, soudainement calmé, si je pouvais croire…
+
+— Croyez-moi, car je ne saurais me tromper. Ah! vous n’avez pas deviné comme moi les tortures de cette généreuse jeune fille, se débattant entre son amour et ce qu’elle croit son devoir. Votre cœur n’a donc pas battu à ses paroles d’adieu?…
+
+— Elle m’aime, elle est libre, et elle me fuit…
+
+— Libre!… Non, elle ne l’est pas. En vous rendant sa parole, elle obéissait à une volonté supérieure et irrésistible. Elle se dévouait… Pour qui? Nous le saurons bientôt, et le secret de son dévoûment nous apprendra le secret de la machination dont vous êtes victime.
+
+<p align="right" aria-hidden="true">
+  138
+</p>
+
+* * *
+
+À mesure que parlait M. Verduret, Prosper sentait se fondre ses résolutions de révolte, l’espoir et la confiance lui revenaient.
+
+— Si vous disiez vrai, pourtant, murmurait-il, si vous disiez vrai!…
+
+— Malheureux jeune homme! pourquoi vous obstiner à fermer les yeux à l’évidence! Vous ne comprenez donc pas que Madeleine sait le nom du voleur.
+
+— C’est impossible.
+
+— C’est vrai. Mais ce nom, croyez-le bien, il n’est pas de puissance humaine capable de le lui arracher. Oui, elle vous sacrifie, mais elle en a presque le droit, puisqu’elle s’est d’abord sacrifiée elle-même.
+
+Prosper était vaincu, mais il ne pouvait, sans que son cœur se brisât, quitter ce salon, où Madeleine lui était apparue.
+
+— Hélas! s’écria-t-il, en serrant la main de M. Verduret, je dois vous paraître insensé, ridicule… C’est que vous ne savez pas, non, vous ne pouvez savoir ce que je souffre…
+
+L’homme aux favoris roux hocha tristement la tête; en un moment, sa physionomie changea, ses yeux si brillants se voilèrent, sa voix trembla.
+
+— Ce que vous souffrez, répondit-il, je l’ai souffert. Comme vous, j’ai aimé, non une noble et pure jeune fille, mais une fille. Pendant trois ans, j’ai été à ses pieds. Puis, un jour, tout à coup, elle m’a quitté, moi qui l’adorais, pour se jeter dans les bras d’un homme qui la méprisait. Alors, comme vous, j’ai voulu mourir. Malheureuse! Ni les larmes ni les prières n’ont pu la ramener à moi. La passion ne se raisonne pas, elle aimait cet autre.
+
+— Et vous le connaissiez, cet autre?
+
+— Je le connaissais.
+
+— Et vous ne vous êtes pas vengé!…
+
+— Non, répondit M. Verduret. Et d’un ton singulier il ajouta: le hasard s’est chargé de ma vengeance.
+
+Pendant plus d’une minute, Prosper garda le silence.
+
+<p align="right" aria-hidden="true">
+  139
+</p>
+
+* * *
+
+— Je suis décidé, monsieur, prononça-t-il enfin, mon honneur est un dépôt sacré dont je dois compte à ma famille, je suis prêt à vous suivre jusqu’au bout, disposez de moi.
+
+Ce jour-là même, Prosper, fidèle à sa parole, vendait son mobilier et adressait à ses amis une lettre où il annonçait son prochain départ pour San-Francisco.
+
+Et le soir il s’installait, ainsi que M. Verduret, à l’hôtel du Grand-Archange.
+
+M<sup>me</sup> Alexandre lui avait donné sa plus jolie chambre, bien laide si on la comparait au salon si coquet de la rue Chaptal. Mais il n’était pas en état de faire cette différence. Étendu sur un méchant canapé, il repassait les événements de la journée, trouvant une âcre jouissance à son isolement.
+
+Vers onze heures, se sentant la tête lourde, il voulut ouvrir la fenêtre; le vent le contraignit à la refermer bien vite.
+
+Mais une bouffée de tempête était entrée dans la chambre, les rideaux tremblaient, et au milieu de la pièce un léger débris de papier tourbillonnait.
+
+Machinalement, Prosper ramassa ce papier et l’examina.
+
+Il était couvert d’un écriture fine, l’écriture de Nina Gypsy, il n’y avait pas à s’y tromper.
+
+— C’était un fragment d’une lettre déchirée, et si les phrases tronquées ne présentaient à l’esprit aucun sens satisfaisant, elles suffisaient pour égarer l’imagination dans le champ sans limites des possibilités.
+
+Voici exactement ce fragment:
+
+« … de M. Raoul, j’ai été bien imp…
+
+« … tramé contre lui, dont jamais…
+
+« … avertir Prosper et alors…
+
+« … meilleur ami, lui
+
+« … main de mademoiselle Ma…
+
+Prosper ne dormit pas cette nuit-là.
+
+<p align="right" aria-hidden="true">
+  140
 </p>
 
 * * *

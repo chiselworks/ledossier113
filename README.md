@@ -6,7 +6,7 @@ Cette version du texte est en Markdown. Voir ce [document](./text.md).
 _Source:_ [BnF Gallica](https://gallica.bnf.fr/ark:/12148/bpt6k5493725m).
 
 ## Progrès jusqu'à présent
-__Cent vingt-huit__ pages sur _quatre cent quatre-vingt-sept_.
+__Cent quarante__ pages sur _quatre cent quatre-vingt-sept_.
 
 - [x] Page de couverture
 - [x] Chapitre I
@@ -16,7 +16,7 @@ __Cent vingt-huit__ pages sur _quatre cent quatre-vingt-sept_.
 - [x] Chapitre V
 - [x] Chapitre VI
 - [x] Chapitre VII
-- [ ] Chapitre VIII
+- [x] Chapitre VIII
 - [ ] Chapitre IX
 - [ ] Chapitre X
 - [ ] Chapitre XI
