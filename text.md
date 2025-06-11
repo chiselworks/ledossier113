@@ -44,7 +44,7 @@ Quatre jours durant, Paris entier ne s’occupa que de ce vol.
 Puis, de graves événements survinrent, un acrobate se cassa la jambe au Cirque, une demoiselle débuta sur
 
 <p align="right" aria-hidden="true">
-  1
+  3
 </p>
 
 * * *
@@ -74,7 +74,7 @@ Les bureaux de la correspondance, du grand-livre et de la comptabilité généra
 Au fond, on aperçoit une petite cour vitrée sur laquelle
 
 <p align="right" aria-hidden="true">
-  2
+  4
 </p>
 
 * * *
@@ -102,7 +102,7 @@ Ce mot, le chef de la maison et le caissier le connaissent seuls. Ils ont aussi 
 Avec un tel meuble, possédât-on plus de diamants
 
 <p align="right" aria-hidden="true">
-  3
+  5
 </p>
 
 * * *
@@ -136,7 +136,7 @@ Il y eut une certaine hésitation, mais un jeune employé nommé Cavaillon, qui 
 — Je repasserai donc, fit M. de Clameran.
 
 <p align="right" aria-hidden="true">
-  4
+  6
 </p>
 
 * * *
@@ -176,7 +176,7 @@ Il s’arrêta court. La porte de la caisse venait de s’ouvrir et le caissier 
 La physionomie de Prosper, sa voix rauque, le trem-
 
 <p align="right" aria-hidden="true">
-  5
+  7
 </p>
 
 * * *
@@ -220,7 +220,7 @@ Puis réfléchissant:
 — Non, reprit-il d’un ton de découragement profond, non, ce n’est pas possible. Jamais, depuis cinq ans que je tiens la caisse, M. Fauvel ne l’a ouverte sans moi. Deux ou trois fois il a eu besoin de fonds, et il m’a at-
 
 <p align="right" aria-hidden="true">
-  6
+  8
 </p>
 
 * * *
@@ -254,7 +254,7 @@ La voix de M. Fauvel rendit au caissier l’énergie factice des grandes crises;
 Ces quelques mots anéantissaient toute espérance, mais
 
 <p align="right" aria-hidden="true">
-  7
+  9
 </p>
 
 * * *
@@ -292,7 +292,7 @@ Un client voulait absolument entrer, malgré les protestations des garçons, et,
 Tous les employés réunis dans le bureau se tenaient debout, immobiles, glacés; le silence était profond, solennel. Il était aisé de voir que quelque question terrible, question de vie ou de mort se débattait entre tous ces hommes.
 
 <p align="right" aria-hidden="true">
-  8
+  10
 </p>
 
 * * *
@@ -334,7 +334,7 @@ Aussitôt, tournant le dos au maître de forges, M. Fauvel revint à son caissie
 Prosper ne bougea pas.
 
 <p align="right" aria-hidden="true">
-  9
+  11
 </p>
 
 * * *
@@ -368,7 +368,7 @@ M. Fauvel avait trop d’expérience pour ne pas deviner l’impression produite
 Il sortit, monta jusqu’à son cabinet, et, au bout de cinq minutes, reparut tenant à la main une lettre et une liasse de titres.
 
 <p align="right" aria-hidden="true">
-  10
+  12
 </p>
 
 * * *
@@ -398,7 +398,7 @@ Enfin, après un long silence, le banquier s’arrêta devant Prosper; il avait 
 Le caissier obéit sans mot dire, presque machinalement, et son patron le suivit, prenant bien soin de refermer la porte derrière lui.
 
 <p align="right" aria-hidden="true">
-  11
+  13
 </p>
 
 * * *
@@ -422,7 +422,7 @@ Jamais Prosper n’avait entendu son patron s’exprimer d’une voix si douce, 
 — Répondez, poursuivait M. Fauvel, n’ai-je pas toujours été pour vous comme un père? Dès le premier jour, ma maison vous a été ouverte; je voulais que ma famille fût la vôtre. Longtemps vous avez vécu comme mon fils, entre mes deux fils et ma nièce Madeleine. Mais vous vous êtes lassé de cette vie heureuse. Un jour, il y
 
 <p align="right" aria-hidden="true">
-  12
+  14
 </p>
 
 * * *
@@ -446,7 +446,7 @@ Prosper essaya un geste de protestation.
 — Oui, mon honneur, insista M. Fauvel, d’une voix que le ressentiment de l’humiliation essuyée rendait plus
 
 <p align="right" aria-hidden="true">
-  13
+  15
 </p>
 
 * * *
@@ -498,7 +498,7 @@ Tant de fois ses prévisions ont été trompées qu’il en est arrivé au scept
 Forcément, il en arrive à cette conclusion navrante,
 
 <p align="right" aria-hidden="true">
-  14
+  16
 </p>
 
 * * *
@@ -538,7 +538,7 @@ Seulement, devenu plus grave, il observait alternativement le caissier et M. Fau
 Prosper était toujours fort pâle et aussi abattu que pos-
 
 <p align="right" aria-hidden="true">
-  15
+  17
 </p>
 
 * * *
@@ -576,7 +576,7 @@ Le banquier hésita un moment.
 — Je ne le crois pas, répondit-il enfin.
 
 <p align="right" aria-hidden="true">
-  16
+  18
 </p>
 
 * * *
@@ -618,7 +618,7 @@ Il tournait autour du bureau.
 Aussitôt; il entr’ouvrit la porte et appela:
 
 <p align="right" aria-hidden="true">
-  17
+  19
 </p>
 
 * * *
@@ -666,7 +666,7 @@ Anselme sorti, M. Fanferlot reprit ses recherches. Il avait ouvert la porte du p
 Le bureau particulier de M. André Fauvel est com-
 
 <p align="right" aria-hidden="true">
-  18
+  20
 </p>
 
 * * *
@@ -698,7 +698,7 @@ Jamais, non jamais, il n’aurait cru que son patron réaliserait ses menaces. C
 Assis dans un fauteuil près de la cheminée, il s’abî-
 
 <p align="right" aria-hidden="true">
-  19
+  21
 </p>
 
 * * *
@@ -728,7 +728,7 @@ Enfin, Madeleine murmura d’une voix à peine intelligible:
 — Vous, Prosper, vous!
 
 <p align="right" aria-hidden="true">
-  20
+  22
 </p>
 
 * * *
@@ -762,7 +762,7 @@ Elle voulut insister; au lieu de commander, elle pria, mais la détermination de
 Tout en parlant, il la repoussait doucement, bien qu’elle résistât un peu, et il parvint à refermer la porte.
 
 <p align="right" aria-hidden="true">
-  21
+  23
 </p>
 
 * * *
@@ -792,7 +792,7 @@ Mais cette conviction de l’agent de la sûreté ne devait guère, pour le mome
 Fanferlot, l’ambitieux, l’homme qui veut arriver, qui
 
 <p align="right" aria-hidden="true">
-  22
+  24
 </p>
 
 * * *
@@ -826,7 +826,7 @@ Sous le coup, en apparence, d’une émotion pareille, M. Fauvel, Prosper et le 
 Fanferlot se retourna d’un air contrarié. Il se repro-
 
 <p align="right" aria-hidden="true">
-  23
+  25
 </p>
 
 * * *
@@ -856,7 +856,7 @@ Cette égratignure — récente, on ne pouvait le nier — avait pour lui une si
 Résolu de démêler seul l’écheveau embrouillé de cette affaire, l’agent de la sûreté devait garder pour lui ses
 
 <p align="right" aria-hidden="true">
-  24
+  26
 </p>
 
 * * *
@@ -884,7 +884,7 @@ L’agent de la sûreté n’avait nul besoin de cet encouragement à une attent
 C’est pourquoi, entré dans le bureau sur les pas du caissier, il alla s’établir tout au fond, dans l’ombre, sur une banquette, parut chercher une position commode, se tourna, se retourna, bâilla à se démettre la mâchoire, et finalement ferma les yeux.
 
 <p align="right" aria-hidden="true">
-  25
+  27
 </p>
 
 * * *
@@ -912,7 +912,7 @@ Bientôt, cependant, il cessa de remuer le crayon qu’il tenait; il attira à l
 Sa courte lettre écrite, Prosper la plia soigneusement, la réduisant au moindre volume possible, et, après un regard furtif donné à l’agent de la sûreté, toujours immobile dans son coin, il la jeta au petit Cavaillon avec ce seul mot:
 
 <p align="right" aria-hidden="true">
-  26
+  28
 </p>
 
 * * *
@@ -942,7 +942,7 @@ Le commissaire eut l’air de ne pas comprendre.
 — Comment, demanda-t-il, des humiliations?
 
 <p align="right" aria-hidden="true">
-  27
+  29
 </p>
 
 * * *
@@ -972,7 +972,7 @@ Prosper ne sembla pas l’entendre. Il tira de sa poche une petite clé qu’il 
 — Voici, monsieur, dit-il, la clé de votre caisse. J’espère, pour moi, que vous reconnaîtrez un jour que je ne
 
 <p align="right" aria-hidden="true">
-  28
+  30
 </p>
 
 * * *
@@ -1004,7 +1004,7 @@ Le commissaire de police l’interrompit.
 Le banquier répondit par un geste d’approbation.
 
 <p align="right" aria-hidden="true">
-  29
+  31
 </p>
 
 * * *
@@ -1036,7 +1036,7 @@ Ils sortirent, et c’est avec une tristesse morne, les yeux humides de larmes q
 C’est Fanferlot, l’homme à l’oreille toujours ouverte, qui recueillit et nota cette phrase, et prompt au soupçon, trop disposé à accorder à autrui un fonds d’astuce égal
 
 <p align="right" aria-hidden="true">
-  30
+  32
 </p>
 
 * * *
@@ -1060,7 +1060,7 @@ Après mûres réflexions, l’agent de la sûreté décida, en sa sagesse polic
 Puis ces façons d’agir étaient bien mieux dans le ca-
 
 <p align="right" aria-hidden="true">
-  31
+  33
 </p>
 
 * * *
@@ -1086,7 +1086,7 @@ Enfin, vers une heure, l’agent de la sûreté vit Cavaillon se lever, quitter 
 L’instant d’après, en effet, Cavaillon parut à la porte de la maison de banque. Mais avant de poser le pied sur le trottoir, il regardait de droite et de gauche; il hésitait.
 
 <p align="right" aria-hidden="true">
-  32
+  34
 </p>
 
 * * *
@@ -1122,7 +1122,7 @@ Même avec ses pratiques il est parfait, et c’est avec les plus grands égards
 — Oh! que si; vous m’avez très-bien vu ce matin. Il s’agit d’ailleurs de la moindre des choses, et si vous vou-
 
 <p align="right" aria-hidden="true">
-  33
+  35
 </p>
 
 * * *
@@ -1154,7 +1154,7 @@ Le jeune employé comprit que s’obstiner en présence d’un homme si bien ren
 Ce pouvait fort bien être la vérité. Fanferlot en eut
 
 <p align="right" aria-hidden="true">
-  34
+  36
 </p>
 
 * * *
@@ -1188,7 +1188,7 @@ Mais il en fut pour sa tentative, l’agent de la sûreté est aussi fort que do
 — Allons, bon! voici que vous allez me réduire à des extrémités pénibles. Savez-vous ce qui va arriver, si vous vous entêtez? J’appellerai deux sergents de ville qui vous prendront chacun un bras et vous conduiront chez le commissaire de police, et une fois là, j’aurai la douleur de vous fouiller bon gré mal gré. Tenez, franchement, vous me désolez.
 
 <p align="right" aria-hidden="true">
-  35
+  37
 </p>
 
 * * *
@@ -1209,7 +1209,7 @@ Enfin il lut:
 
     « Chère Nina,
 
-« Si tu m’aimes, vite, sans une minute d’hésitation, sans réflexions, obéis-moi. Au reçu de ce mot, prends tout ce que tu as à toi, à la maison — tout absolument — et va t’établir dans quelque maison meublée à l’autre bout de Paris. Ne te montre pas, disparais autant que tu le pourras. De ton obéissance dépend peut-être ma vie. Je suis accusé d’un vol considérable et je vais être arrêté. Il doit y avoir cinq cents francs dans le secrétaire, prends-les. Laisse ton adresse à Cavaillon qui t’expliquera ce que je ne puis te dire. Bon espoir quand même, et à bientôt.
+« Si tu m’aimes, vite, sans une minute d’hésitation, sans réflexions, obéis-moi. Au reçu de ce mot, prends tout ce que tu as à toi, à la maison — *tout absolument* — et va t’établir dans quelque maison meublée à l’autre bout de Paris. Ne te montre pas, disparais autant que tu le pourras. De ton obéissance dépend peut-être ma vie. Je suis accusé d’un vol considérable et je vais être arrêté. Il doit y avoir cinq cents francs dans le secrétaire, prends-les. Laisse ton adresse à Cavaillon qui t’expliquera ce que je ne puis te dire. Bon espoir quand même, et à bientôt.
 
     « PROSPER. »
 
@@ -1218,7 +1218,7 @@ Moins consterné, Cavaillon eût pu surprendre sur la figure de l’agent de la 
 Fanferlot s’était bercé de cet espoir qu’il allait s’emparer d’un document très-important, et, qui sait? peut-être d’une preuve irrécusable de l’innocence ou de la culpabilité de Prosper. Au lieu de cela, il venait de mettre
 
 <p align="right" aria-hidden="true">
-  36
+  38
 </p>
 
 * * *
@@ -1262,7 +1262,7 @@ Cavaillon essaya une certaine résistance, il voulut discuter, mais M. Fanferlot
 — Mais, monsieur, Prosper a été mon protecteur, il m’a tiré de la misère, il est mon ami.
 
 <p align="right" aria-hidden="true">
-  37
+  39
 </p>
 
 * * *
@@ -1292,7 +1292,7 @@ Le petit groom hésita; ce que voyant, M. Fanferlot montra sa lettre.
 — Je suis chargé, insista-t-il, par M. Prosper, de remettre ce billet à madame et d’attendre sa réponse.
 
 <p align="right" aria-hidden="true">
-  38
+  40
 </p>
 
 * * *
@@ -1318,7 +1318,7 @@ Elle était ravissante ainsi, d’une beauté si insolente et si tapageuse, que 
 Pendant qu’il réfléchissait ainsi, tout penaud, se de-
 
 <p align="right" aria-hidden="true">
-  39
+  41
 </p>
 
 * * *
@@ -1356,7 +1356,7 @@ L’agent de la sûreté s’exprimait avec un sérieux si convaincu que M<sup>m
 — Je n’ai jamais su deviner les énigmes, dit-elle sèchement; que prétendez-vous insinuer, s’il vous plaît?
 
 <p align="right" aria-hidden="true">
-  40
+  42
 </p>
 
 * * *
@@ -1390,7 +1390,7 @@ Si brave qu’il soit, lui qui chaque jour affronte les plus dangereux coquins, 
 Elle avait lâché les poignets de Fanferlot, et sa fureur, véritable rage d’enfant gâté, s’exhalait en gestes désordonnés. Elle se souciait bien vraiment de son beau peignoir et de ses magnifiques dentelles, qu’elle lacérait impitoyablement.
 
 <p align="right" aria-hidden="true">
-  41
+  43
 </p>
 
 * * *
@@ -1424,7 +1424,7 @@ Elle secoua tristement la tête; une larme, à grand’peine retenue, voilait l�
 — Mais alors pourquoi…
 
 <p align="right" aria-hidden="true">
-  42
+  44
 </p>
 
 * * *
@@ -1442,7 +1442,7 @@ M<sup>me</sup> Gypsy haussa les épaules.
 — Oui, c’est vrai, répondit-elle, il joue. Je lui ai vu, sans un tressaillement, perdre ou gagner des sommes considérables. Il joue, mais il n’est pas joueur. Il joue comme il soupe, comme il se grise, comme il fait des folies, sans passion, sans entraînement, sans plaisir. Quelquefois il me fait peur: il me semble qu’il traîne un corps où il n’y a plus d’âme. Ah! je ne suis pas heureuse, allez! Jamais je n’ai surpris en lui qu’une indifférence profonde, si immense, que souvent elle m’a paru être du désespoir. Et cet homme-là aurait volé! Allons donc! Tenez, vous ne m’ôterez pas de l’idée qu’il y a quelque chose de terrible dans sa vie, un secret, un grand malheur, je ne sais quoi, mais quelque chose.
 
 <p align="right" aria-hidden="true">
-  43
+  45
 </p>
 
 * * *
@@ -1468,7 +1468,7 @@ C’est-à-dire que tout d’abord il s’efforça consciencieusement de calmer 
 — Que gagnerez-vous, chère madame? lui disait-il; rien. Vous n’avez pas, je vous l’affirme, la moindre chance de succès. Et songez que vous allez vous compromettre gravement. Qui sait si la justice ne voudra pas voir en vous une complice de M. Bertomy!
 
 <p align="right" aria-hidden="true">
-  44
+  46
 </p>
 
 * * *
@@ -1500,7 +1500,7 @@ La jeune femme eut un beau geste de téméraire fierté; elle ne doutait de rien
 — Il est des gens, monsieur, répondit-elle, qu’il faut sauver sans les prévenir et comme malgré eux. Je con-
 
 <p align="right" aria-hidden="true">
-  45
+  47
 </p>
 
 * * *
@@ -1532,7 +1532,7 @@ Elle hésitait, encore, il prit sur la table la lettre de Prosper, qu’elle y a
 — Quoi! M. Bertomy, dans un moment terrible, alors qu’il va être arrêté, vous écrit pour vous tracer votre conduite, et vous voulez rendre vaine cette sage précaution! Que vous dit-il? Tenez, relisons ensemble ce billet, qui est comme le testament de sa liberté. Il vous dit: « Si tu m’aimes, je t’en prie, obéis… » Et vous hé-
 
 <p align="right" aria-hidden="true">
-  46
+  48
 </p>
 
 * * *
@@ -1562,7 +1562,7 @@ Mais alors il faut fuir, monsieur, fuir bien vite! Qui sait si la police n’est
 Et laissant seul l’agent de la sûreté, M<sup>me</sup> Nina se précipita dans sa chambre à coucher, appelant à grands cris sa femme de chambre, sa cuisinière, le petit groom lui-même, ordonnant de vider les tiroirs et les armoires, d’entasser pêle-mêle dans des malles tout ce qui lui appartenait, et de se dépêcher surtout, de se presser.
 
 <p align="right" aria-hidden="true">
-  47
+  49
 </p>
 
 * * *
@@ -1585,7 +1585,7 @@ L’homme de la préfecture eut l’air de réfléchir. Il avait mille peine à 
 
 — Où est-ce?
 
-— De l’autre côté de l’eau, quai Saint-Michel, hôtel du Grand-Archange, tenu par M<sup>me</sup> Alexandre…
+— De l’autre côté de l’eau, quai Saint-Michel, hôtel du *Grand-Archange*, tenu par M<sup>me</sup> Alexandre…
 
 M<sup>me</sup> Nina n’a jamais été longue à prendre une détermination.
 
@@ -1604,7 +1604,7 @@ M<sup>me</sup> Gypsy allait envoyer chercher une voiture, Fanferlot, qui se dit 
 Il jouait d’ailleurs de bonheur ce jour-là. Un fiacre passait devant la maison, il l’arrêta.
 
 <p align="right" aria-hidden="true">
-  48
+  50
 </p>
 
 * * *
@@ -1613,7 +1613,7 @@ Il jouait d’ailleurs de bonheur ce jour-là. Un fiacre passait devant la maiso
 
 En effet, il alla s’établir de l’autre côté de la rue, chez un marchand de vins. Il était tout étourdi de ce qu’il venait d’apprendre, et ne sachant plus que penser au juste, il avait besoin de mettre de l’ordre dans ses idées.
 
-Il n’en eut guère le temps: de formidables coups de fouet troublaient le silence de la rue; M<sup>me</sup> Nina se rendait au Grand-Archange.
+Il n’en eut guère le temps: de formidables coups de fouet troublaient le silence de la rue; M<sup>me</sup> Nina se rendait au *Grand-Archange*.
 
 — Allons! s’écria-t-il gaîment, celle-là, du moins, je la tiens.
 
@@ -1621,7 +1621,7 @@ Il n’en eut guère le temps: de formidables coups de fouet troublaient le sile
   IV
 </h2>
 
-À cette heure même où M<sup>me</sup> Nina Gypsy allait chercher un refuge à cet hôtel du Grand-Archange, qui lui avait été indiqué par M. Fanferlot, dit l’Écureuil, Prosper Bertomy était écroué au dépôt de la préfecture de police.
+À cette heure même où M<sup>me</sup> Nina Gypsy allait chercher un refuge à cet hôtel du *Grand-Archange*, qui lui avait été indiqué par M. Fanferlot, dit l’Écureuil, Prosper Bertomy était écroué au dépôt de la préfecture de police.
 
 Depuis le moment où, maître de ses impressions, il avait réussi à reprendre son maintien habituel, son sang-froid ne s’était plus démenti.
 
@@ -1630,7 +1630,7 @@ Vainement les gens qui l’entouraient, observateurs ingénieux, avaient épié 
 Même, on aurait pu le croire insensible à son affreuse
 
 <p align="right" aria-hidden="true">
-  49
+  51
 </p>
 
 * * *
@@ -1662,7 +1662,7 @@ Il parut touché de cette marque banale d’intérêt et répondit:
 Il faisait un temps magnifique, une resplendissante journée de printemps. Tout le long de la rue Montmar-
 
 <p align="right" aria-hidden="true">
-  50
+  52
 </p>
 
 * * *
@@ -1688,7 +1688,7 @@ Si troublé que fut le caissier, il ne put s’empêcher de remarquer que les ye
 Cet homme, aux allures de chef de bureau, n’était
 
 <p align="right" aria-hidden="true">
-  51
+  53
 </p>
 
 * * *
@@ -1714,7 +1714,7 @@ Ce gentleman hautain et correct, sorte de gandin glacé, avait des passions arde
 Mais, un jour, vers vingt-quatre ans, l’ambition l’avait mordu au cœur. Pendant que tous ses désirs souffraient, emprisonnés dans sa médiocrité comme un lycéen dans une tunique trop étroite, regardant autour de lui tous ces riches auxquels l’argent donne la baguette des mille et une nuits, il envia leur sort.
 
 <p align="right" aria-hidden="true">
-  52
+  54
 </p>
 
 * * *
@@ -1748,7 +1748,7 @@ Au matin, cependant, le sommeil lui vint avec le jour, et il dormait encore lors
 — Allons, monsieur, disait-il, à l’instruction!
 
 <p align="right" aria-hidden="true">
-  53
+  55
 </p>
 
 * * *
@@ -1782,7 +1782,7 @@ Le gardien du malheureux caissier l’arrêta devant une de ces portes.
 À cette réflexion du gardien, faite d’un ton de com-
 
 <p align="right" aria-hidden="true">
-  54
+  56
 </p>
 
 * * *
@@ -1808,7 +1808,7 @@ La galerie, à l’heure où Prosper y arriva, était fort animée. Le banc éta
 Devant chaque porte, qui est celle d’un juge d’instruction, se tenaient des groupes de témoins, où on causait à voix basse. À tout moment, allaient et venaient des gendarmes de Paris, dont les fortes bottes résonnaient sur les dalles, et qui amenaient ou reconduisaient des pri-
 
 <p align="right" aria-hidden="true">
-  55
+  57
 </p>
 
 * * *
@@ -1834,7 +1834,7 @@ Mais Prosper ne remarquait pas ces détails. Toute son attention se concentrait 
 Il est vrai que la figure de M. Patrigent, figure irrégulière, encadrée de courts favoris roux, animée par des yeux vifs et spirituels, respirant la bonté, est de celles qui, au premier abord, rassurent et attirent.
 
 <p align="right" aria-hidden="true">
-  56
+  58
 </p>
 
 * * *
@@ -1884,7 +1884,7 @@ Le renseignement qu’il cherchait trouvé, M. Patrigent reprit l’interrogatoi
 C’est d’une voix affreusement troublée que Prosper répondit à ces dernières questions. C’est que s’il est des heures dans la vie où le souvenir de la famille encourage
 
 <p align="right" aria-hidden="true">
-  57
+  59
 </p>
 
 * * *
@@ -1916,7 +1916,7 @@ Le magistrat interrompit Prosper d’un geste.
 — Précisons, dit-il; le vol a été commis dans des circonstances telles que les soupçons ne peuvent, ce semble, atteindre que M. Fauvel ou vous. Peut-on soupçonner quelque autre personne?
 
 <p align="right" aria-hidden="true">
-  58
+  60
 </p>
 
 * * *
@@ -1952,7 +1952,7 @@ En faisant comparaître Prosper, M. Patrigent obéissait à l’article 93 du Co
 Mais ce n’est pas en vingt-quatre heures, surtout dans une affaire comme celle-là, en l’absence de tout corps de délit, de toute preuve matérielle, de tout indice même,
 
 <p align="right" aria-hidden="true">
-  59
+  61
 </p>
 
 * * *
@@ -1980,7 +1980,7 @@ Facile tout à l’heure avec le prévenu, le juge d’instruction devenait atte
 — Procédons par ordre, monsieur, dit-il à M. Fauvel, et, pour le moment, bornez-vous, je vous prie, à répondre à mes questions. Doutiez-vous de la probité de votre caissier?
 
 <p align="right" aria-hidden="true">
-  60
+  62
 </p>
 
 * * *
@@ -2006,7 +2006,7 @@ M. Patrigent eut un certain froncement de sourcils qui lui est familier quand il
 — Alors, vous ne voyez nul motif à la conduite de votre caissier?
 
 <p align="right" aria-hidden="true">
-  61
+  63
 </p>
 
 * * *
@@ -2046,7 +2046,7 @@ Le juge d’instruction n’avait plus l’air d’écouter; il inscrivait ce no
 — Non, le mot avait été changé l’avant-veille et sa singularité m’avait frappé.
 
 <p align="right" aria-hidden="true">
-  62
+  64
 </p>
 
 * * *
@@ -2078,7 +2078,7 @@ Voyant qu’on ne l’interrogeait plus, le banquier pensa qu’il pouvait enfin
 Il suffisait en effet. Déjà M. Patrigent était renseigné et savait aussi bien que le banquier à quoi s’en tenir sur sa situation.
 
 <p align="right" aria-hidden="true">
-  63
+  65
 </p>
 
 * * *
@@ -2110,7 +2110,7 @@ C’était au jeune Cavaillon à être interrogé.
 Le pauvre garçon était, lorsqu’il se présenta devant le juge, dans un état à faire pitié.
 
 <p align="right" aria-hidden="true">
-  64
+  66
 </p>
 
 * * *
@@ -2140,7 +2140,7 @@ Fanferlot, qui s’était présenté en saluant jusqu’à terre, s’inclina, s
 C’est qu’en dépit de son visage riant, mille inquiétu-
 
 <p align="right" aria-hidden="true">
-  65
+  67
 </p>
 
 * * *
@@ -2168,7 +2168,7 @@ Fanferlot eut un sourire malin.
 Resté seul, et bien que la soirée fût avancée, M. Patrigent prit encore bon nombre de mesures qui devaient faire affluer chez lui les dépositions.
 
 <p align="right" aria-hidden="true">
-  66
+  68
 </p>
 
 * * *
@@ -2200,7 +2200,7 @@ Le troisième jour, il commença à s’inquiéter de ne voir personne que les c
 — Est-ce qu’on ne va pas m’interroger de nouveau? demandait-il chaque fois.
 
 <p align="right" aria-hidden="true">
-  67
+  69
 </p>
 
 * * *
@@ -2242,7 +2242,7 @@ Repoussé par ce dernier ami, un père, le malheureux caissier parut se roidir c
 — Mais je suis innocent, mon père, je vous le jure par la mémoire sacrée de ma mère.
 
 <p align="right" aria-hidden="true">
-  68
+  70
 </p>
 
 * * *
@@ -2278,7 +2278,7 @@ M. Bertomy eut un geste de méprisante pitié:
 — Assez, monsieur, assez. Je sais tout, je vous l’ai dit.
 
 <p align="right" aria-hidden="true">
-  69
+  71
 </p>
 
 * * *
@@ -2300,7 +2300,7 @@ M. Bertomy s’arrêta brusquement.; il venait de s’apercevoir que son fils pa
 À la voix impérieuse de son père, Prosper se dressa
 
 <p align="right" aria-hidden="true">
-  70
+  72
 </p>
 
 * * *
@@ -2328,7 +2328,7 @@ M. Bertomy s’arrêta court, épouvanté de l’expression de la physionomie, d
 — Vous n’avez pas le droit, mon père, s’écria-t-il, non, vous n’avez pas le droit d’agir ainsi. Libre à vous de refuser de me croire; il vous est interdit de tenter une démarche qui serait un aveu et me perdrait. Qui vous assure que je suis coupable? Quoi? lorsque la justice hésite, vous, mon père, vous n’hésitez pas, et, plus im-
 
 <p align="right" aria-hidden="true">
-  71
+  73
 </p>
 
 * * *
@@ -2358,7 +2358,7 @@ Il s’attendrissait; mais bientôt il reprit avec une violence croissante:
 — Oui, je vous comprends, vous allez me vanter la probité de M. André Fauvel; vous allez me dire que toutes les vertus se sont réfugiées au sein de cette fa-
 
 <p align="right" aria-hidden="true">
-  72
+  74
 </p>
 
 * * *
@@ -2390,7 +2390,7 @@ Il fallait obéir quand même, il obéit.
 Mais sa démarche n’était plus celle des premiers jours, un changement complet venait de s’opérer en lui. Il allait le front haut, d’un pas assuré, et le feu de la résolution éclatait dans ses yeux.
 
 <p align="right" aria-hidden="true">
-  73
+  75
 </p>
 
 * * *
@@ -2418,7 +2418,7 @@ Prosper, surpris, s’arrêta; il cherchait une réponse, mais déjà l’homme 
 Le garde de Paris aurait longtemps encore poursuivi la légende de M. Lecoq, mais il arrivait avec son prévenu à la galerie des juges d’instructions.
 
 <p align="right" aria-hidden="true">
-  74
+  76
 </p>
 
 * * *
@@ -2452,7 +2452,7 @@ Prosper secoua tristement la tête.
 Le vulgaire moyen employé par le juge d’instruction réussit fort souvent. Mais ici avec un prévenu si maître de soi, il n’avait guère de chances de succès. Cependant il l’avait tenté à tout hasard.
 
 <p align="right" aria-hidden="true">
-  75
+  77
 </p>
 
 * * *
@@ -2492,7 +2492,7 @@ Ce témoin, parti pour un voyage le jour même du vol, n’avait pu être entend
 — Soit, dit-il, je n’insisterai pas sur ce point. Appre-
 
 <p align="right" aria-hidden="true">
-  76
+  78
 </p>
 
 * * *
@@ -2526,7 +2526,7 @@ Prosper hésita.
 — Vous vous taisez, reprit M. Patrigent; alors je vais vous dire l’emploi de votre temps. Vous êtes rentré chez vous, rue Chaptal, vous vous êtes habillé, et vous vous êtes rendu à une soirée que donnait une de ces femmes
 
 <p align="right" aria-hidden="true">
-  77
+  79
 </p>
 
 * * *
@@ -2562,7 +2562,7 @@ Prosper était non pas décontenancé, mais stupéfait. Ne se doutant pas des pu
 — Monsieur, ce jour que vous dites, j’ai vendu, par l’intermédiaire d’un agent de change, quelques titres que j’avais, moyennant 3,000 francs; j’ai de plus pris à ma caisse, en avance sur mes appointements, 2,000 francs. Je n’ai rien à dissimuler.
 
 <p align="right" aria-hidden="true">
-  78
+  80
 </p>
 
 * * *
@@ -2600,7 +2600,7 @@ Prosper voulut protester, mais M. Patrigent lui imposa silence. Il cherchait par
 — Ah! voilà, fit-il, écoutez. Palmyre Chocareille, née à Paris en 1840, fille de Chocareille (Jacques), em-
 
 <p align="right" aria-hidden="true">
-  79
+  81
 </p>
 
 * * *
@@ -2624,7 +2624,7 @@ Tout en lisant, le juge d’instruction observait Prosper, cherchant sur son vis
 — Cet infortuné aimait tant cette créature, qu’à la
 
 <p align="right" aria-hidden="true">
-  80
+  82
 </p>
 
 * * *
@@ -2652,7 +2652,7 @@ Il avait espéré arracher un cri à la passion de Prosper, blessée au vif; poi
 — Vous niez l’évidence, fit-il. Soutiendrez-vous aussi que ce n’est pas pour cette fille que vous avez renoncé à des habitudes de plusieurs années et cessé de passer vos soirées chez votre patron?
 
 <p align="right" aria-hidden="true">
-  81
+  83
 </p>
 
 * * *
@@ -2690,7 +2690,7 @@ M. Patrigent ne put dissimuler un sourire de satisfaction.
 — Enfin! dit-il, voilà l’argument que j’attendais. C’est précisément en ne prenant pas la fuite, en restant, pour faire tête à l’orage, que vous prouvez votre intelligence.
 
 <p align="right" aria-hidden="true">
-  82
+  84
 </p>
 
 * * *
@@ -2714,7 +2714,7 @@ Prosper réfléchissait, et la contraction de ses traits disait l’effort de sa
 Si M. Patrigent congédiait ainsi brusquement son prévenu, c’est que ce fait nouveau, qui tout à coup se révélait, l’inquiétait. La déposition du garçon de bureau allait avoir une importance énorme. Que penser, si cet homme venait à affirmer qu’il avait vu le caissier renfermer les billets et sortir? Était-il impossible qu’il eût été d’avance gagné par Prosper?
 
 <p align="right" aria-hidden="true">
-  83
+  85
 </p>
 
 * * *
@@ -2748,7 +2748,7 @@ Le malheureux garçon de bureau s’était, en tombant, brisé le genou; il souf
 En voyant entrer le juge d’instruction, suivi d’un grand jeune homme maigre portant une serviette d’avocat, Antonin, qui sait son monde, devina ce dont il s’agissait.
 
 <p align="right" aria-hidden="true">
-  84
+  86
 </p>
 
 * * *
@@ -2788,7 +2788,7 @@ Le ton solennel de M. Patrigent parut épouvanter Antonin.
 Il fut impossible de l’amener à préciser sa déposition.
 
 <p align="right" aria-hidden="true">
-  85
+  87
 </p>
 
 * * *
@@ -2803,7 +2803,7 @@ L’effet n’en était pas moins produit, et en sortant M. Patrigent disait à 
   VI
 </h2>
 
-L’hôtel du _Grand-Archange_, asile de M<sup>me</sup> Gypsy, est le plus magnifique du quai Saint-Michel.
+L’hôtel du *Grand-Archange*, asile de M<sup>me</sup> Gypsy, est le plus magnifique du quai Saint-Michel.
 
 Quand on paye d’avance et « recta » sa quinzaine, on y est considéré.
 
@@ -2820,7 +2820,7 @@ Et Fanferlot en personne parut sur le seuil.
 Trois ans auparavant, Fanferlot tenait un petit bureau de renseignements clandestins; M<sup>me</sup> Alexandre, marchande à la toilette sans patente, eut besoin de faire surveiller quelques créances suspectes; de là leurs premières relations.
 
 <p align="right" aria-hidden="true">
-  86
+  88
 </p>
 
 * * *
@@ -2829,7 +2829,7 @@ S’ils s’épousèrent pour de bon à la mairie et à l’église, c’est qu�
 
 De ce jour, Fanferlot céda son cabinet de recherches pour entrer à la Préfecture, où il avait déjà été employé, et M<sup>me</sup> Alexandre renonça au commerce.
 
-Faisant une seule masse de leurs économies, ils louèrent et meublèrent l’hôtel du Grand-Archange, et ils prospérèrent, estimés, ou à peu près, du voisinage, lequel ignorait les relations de Fanferlot et de la préfecture de police.
+Faisant une seule masse de leurs économies, ils louèrent et meublèrent l’hôtel du *Grand-Archange*, et ils prospérèrent, estimés, ou à peu près, du voisinage, lequel ignorait les relations de Fanferlot et de la préfecture de police.
 
 — Comme tu rentres tard, mon petit homme, s’écria-t-elle, lâchant la cuillère à potage pour courir l’embrasser.
 
@@ -2846,7 +2846,7 @@ Mais c’est d’un air distrait qu’il reçut ces caresses.
 — Rien du moins qui puisse me servir, et cependant je l’ai retourné comme un gant. C’est un homme comme on n’en voit pas, ce banquier. Il n’a pas un vice, me disait Évariste, pas seulement un pauvre petit défaut sur lequel son valet de chambre puisse gagner dix sous. Il ne fume pas, il ne boit pas, il ne joue jamais, il n’a pas de maîtresses; un saint, quoi! Il est riche à millions et il vit petitement, chichement, comme un épicier; il est fou de sa femme, il adore ses enfants, il reçoit souvent, mais sort très-rarement.
 
 <p align="right" aria-hidden="true">
-  87
+  89
 </p>
 
 * * *
@@ -2889,10 +2889,10 @@ L’agent de la sûreté parut peser les raisons de son épouse.
 
 La petite, c’était M<sup>me</sup> Nina Gypsy.
 
-En venant s’installer au Grand-Archange, la pauvre fille avait cru suivre un bon conseil, et encore maintenant, Fanferlot ne s’étant pas montré, elle restait con-
+En venant s’installer au *Grand-Archange*, la pauvre fille avait cru suivre un bon conseil, et encore maintenant, Fanferlot ne s’étant pas montré, elle restait con-
 
 <p align="right" aria-hidden="true">
-  88
+  90
 </p>
 
 * * *
@@ -2916,16 +2916,17 @@ Sur l’ordre de son mari, l’ancienne marchande à la toilette ouvrit une peti
 En vérité, pour une ancienne femme de chambre, Palmyre Chocareille, devenue M<sup>me</sup> Gypsy, n’avait pas une vilaine écriture.
 
 L’adresse de sa lettre, tracée en belle anglaise était ainsi conçue:
-```
-    Monsieur
-      L. de Clameran, maître de forges
-           à l’hôtel du Louvre.
-     Pour remettre à M. Raoul de Lagors.
-              (Très-pressée.)
-```
+
+<p>
+  &emsp;<i>Monsieur</i><br>
+  &emsp;L. de Clameran, <i>maître de forges</i><br>
+  &emsp;&emsp;&emsp;<i>à l’hôtel du Louvre.</i><br>
+  &emsp;<i>Pour remettre à</i> M. Raoul de Lagors.<br>
+  &emsp;&emsp;&emsp;<i>(Très-pressée.)</i>
+</p>
 
 <p align="right" aria-hidden="true">
-  89
+  91
 </p>
 
 * * *
@@ -2950,7 +2951,7 @@ Prosper est en prison, accusé d’un vol qu’il n’a pas commis, j’en suis 
 
 Il reprit sa lecture:
 
-« …Je vous ai déjà écrit à ce sujet, et je n’ai pas de nouvelles. Qui donc viendra au secours de Prosper si ses meilleurs amis l’abandonnent? Si vous laissiez cette lettre-ci sans réponse, je me croirai dégagée de certaine promesse que vous savez, et, sans scrupule, je raconterai à Prosper la conversation surprise par moi entre vous et M. de Clameran. Mais je puis compter sur vous, n’est-ce pas? Je vous attendrai à l’hôtel du Grand-Archange, après-demain, de midi à quatre heures.
+« …Je vous ai déjà écrit à ce sujet, et je n’ai pas de nouvelles. Qui donc viendra au secours de Prosper si ses meilleurs amis l’abandonnent? Si vous laissiez cette lettre-ci sans réponse, je me croirai dégagée de certaine promesse que vous savez, et, sans scrupule, je raconterai à Prosper la conversation surprise par moi entre vous et M. de Clameran. Mais je puis compter sur vous, n’est-ce pas? Je vous attendrai à l’hôtel du *Grand-Archange*, après-demain, de midi à quatre heures.
 
 NINA GYPSY. »
 
@@ -2961,7 +2962,7 @@ Cette lettre lue, Fanferlot, sans mot dire, se mit à la recopier.
 Fanferlot réintégrait délicatement la lettre recopiée dans son enveloppe, lorsque la porte du « bureau de l’hôtel » s’ouvrit brusquement, et le garçon par deux fois siffla: Psitt! psitt!…
 
 <p align="right" aria-hidden="true">
-  90
+  92
 </p>
 
 * * *
@@ -3001,7 +3002,7 @@ Et très-haut, pour bien être entendue du cabinet, elle lut:
 — Certainement.
 
 <p align="right" aria-hidden="true">
-  91
+  93
 </p>
 
 * * *
@@ -3016,7 +3017,7 @@ M<sup>me</sup> Gypsy n’était pas dans la rue, que déjà Fanferlot avait bond
 
 Le doux agent était blême de fureur et jurait comme un possédé.
 
-— Mille millions de tonnerre! criait-il, qu’est-ce donc que cette maison du Grand-Archange où on se promène aussi librement que sur une place publique!
+— Mille millions de tonnerre! criait-il, qu’est-ce donc que cette maison du *Grand-Archange* où on se promène aussi librement que sur une place publique!
 
 L’ancienne marchande à la toilette, décontenancée, tremblante, ne savait où se mettre.
 
@@ -3037,7 +3038,7 @@ Quand il fut prêt:
 Et, sans écouter son épouse, qui lui criait: « Bonne chance! » Fanferlot s’élança dehors.
 
 <p align="right" aria-hidden="true">
-  92
+  94
 </p>
 
 * * *
@@ -3061,7 +3062,7 @@ Enfin, au moment où neuf heures sonnaient à l’Hôtel-de-Ville, un personnage
 C’était un homme de taille moyenne, assez gros, portant d’épais favoris d’un blond ardent sur une figure enluminée. Sa mise, qui était celle de tous les négociants aisés, n’offrait rien de remarquable, pas plus d’ailleurs que sa personne.
 
 <p align="right" aria-hidden="true">
-  93
+  95
 </p>
 
 * * *
@@ -3087,7 +3088,7 @@ Arrivé sur la porte, il vit le gros homme et Gypsy traverser le trottoir, s’a
 — Parfait! grommela Fanferlot, je les tiens, maintenant, inutile de se presser.
 
 <p align="right" aria-hidden="true">
-  94
+  96
 </p>
 
 * * *
@@ -3119,7 +3120,7 @@ Il s’approcha, non sans précautions.
 Ce fut comme un seau d’eau glacée tombant sur la
 
 <p align="right" aria-hidden="true">
-  95
+  97
 </p>
 
 * * *
@@ -3153,7 +3154,7 @@ Les paquets renfermaient trois robes d’indienne, de gros souliers, des jupons 
 L’agent ne put retenir un mouvement de dépit.
 
 <p align="right" aria-hidden="true">
-  96
+  98
 </p>
 
 * * *
@@ -3185,7 +3186,7 @@ Elle revenait tout autre qu’elle était partie, cette pauvre Gypsy: elle étai
 — Oui, madame, et même ses conseils ont si bien mo-
 
 <p align="right" aria-hidden="true">
-  97
+  99
 </p>
 
 * * *
@@ -3219,12 +3220,12 @@ N’importe, l’agent de la sûreté dormit mal cette nuit, ou, pour mieux dire
 À six heures et demie, il était debout — il faut se lever matin, si on veut rencontrer M. Lecoq — et lesté d’une tasse de café au lait, il se dirigea vers la demeure du célèbre policier.
 
 <p align="right" aria-hidden="true">
-  98
+  100
 </p>
 
 * * *
 
-Certainement Fanferlot, dit l’Écureuil, n’a pas peur du patron, comme il l’appelle, et la preuve, c’est qu’il partit du Grand-Archange la tête haute, le chapeau posé de côté. Cependant, arrivé à la rue Montmartre, qu’habite M. Lecoq, sa crânerie avait sensiblement diminué. Il eut quelques palpitations en s’engageant dans l’allée de la maison et il fit plusieurs pauses en montant l’escalier.
+Certainement Fanferlot, dit l’Écureuil, n’a pas peur du patron, comme il l’appelle, et la preuve, c’est qu’il partit du *Grand-Archange* la tête haute, le chapeau posé de côté. Cependant, arrivé à la rue Montmartre, qu’habite M. Lecoq, sa crânerie avait sensiblement diminué. Il eut quelques palpitations en s’engageant dans l’allée de la maison et il fit plusieurs pauses en montant l’escalier.
 
 Arrivé au troisième étage, devant une porte décorée des armes du célèbre agent, — un coq, symbole de la vigilance, — le cœur lui manqua presque et il eut de la peine à se décider à sonner.
 
@@ -3251,7 +3252,7 @@ C’était M. Lecoq, sous ses apparences officielles.
 — Je sais que tu as si bien embrouillé les choses que tu n’y vois plus rien, que tu es rendu.
 
 <p align="right" aria-hidden="true">
-  99
+  101
 </p>
 
 * * *
@@ -3281,7 +3282,7 @@ M. Lecoq était-il véritablement en colère? Fanferlot qui le connaît bien, en
 M. Lecoq haussa les épaules.
 
 <p align="right" aria-hidden="true">
-  100
+  102
 </p>
 
 * * *
@@ -3305,7 +3306,7 @@ Les renseignements si précis, les minutieux détails qui venaient de lui être 
 — Vous vous êtes donc occupé de cette affaire, patron? demanda-t-il.
 
 <p align="right" aria-hidden="true">
-  101
+  103
 </p>
 
 * * *
@@ -3335,12 +3336,12 @@ La surprise de Fanferlot donnait à sa physionomie une si singulière expression
 Cette théorie du regard en matière de travestissement explique pourquoi le Lecoq officiel qui rendrait des points au lynx, n’a jamais été rencontré dans les couloirs de la préfecture de police, sans ses lunettes à branches d’or.
 
 <p align="right" aria-hidden="true">
-  102
+  104
 </p>
 
 * * *
 
-— Mais alors, patron, disait Fanferlot, poursuivant son idée, vous avez confessé cette petite, dont madame Alexandre n’avait pu venir à bout? Vous savez pourquoi elle quitte le Grand-Archange, pourquoi elle n’attend pas M. de Clameran, pourquoi elle s’est acheté des robes d’indienne?
+— Mais alors, patron, disait Fanferlot, poursuivant son idée, vous avez confessé cette petite, dont madame Alexandre n’avait pu venir à bout? Vous savez pourquoi elle quitte le *Grand-Archange*, pourquoi elle n’attend pas M. de Clameran, pourquoi elle s’est acheté des robes d’indienne?
 
 — Elle n’agit que d’après mes conseils.
 
@@ -3357,7 +3358,7 @@ Pourtant l’époux de M<sup>me</sup> Alexandre était inquiet, il se demandait 
 — Pas plus que toi, mon garçon, et même, pendant que tu as déjà une opinion toute faite, je ne sais encore que penser. Tu m’affirmes que le caissier est innocent et que le banquier est coupable, et j’ignore si tu as tort ou raison. Arrivé après toi, j’en suis encore aux préliminaires de mon enquête. Je ne suis certain que d’une seule chose, c’est qu’il y a une éraillure à la porte du coffre-fort. C’est de là que je pars.
 
 <p align="right" aria-hidden="true">
-  103
+  105
 </p>
 
 * * *
@@ -3383,7 +3384,7 @@ Sans trop deviner le but que se proposait son patron, l’agent de la sûreté f
 — Oui, mais pourquoi? Tel que tu me vois, je me creuse la tête depuis trois jours, et c’est hier seulement que j’ai trouvé. Examinons ensemble si mes conjectures présentent assez de chances de probabilité pour devenir le point de départ de mon enquête.
 
 <p align="right" aria-hidden="true">
-  104
+  106
 </p>
 
 * * *
@@ -3413,7 +3414,7 @@ Accoutumé à bien d’autres triomphes, le célèbre policier s’amusait beauc
 — Non, patron; non, s’écria Fanferlot, un homme comme vous ne se trompe pas: le doute n’est pas possible.
 
 <p align="right" aria-hidden="true">
-  105
+  107
 </p>
 
 * * *
@@ -3453,7 +3454,7 @@ M. Lecoq impatienté haussa les épaules.
 Aussi, Fanferlot qui sait son patron sur le bout du
 
 <p align="right" aria-hidden="true">
-  106
+  108
 </p>
 
 * * *
@@ -3483,7 +3484,7 @@ Ces conditions ne semblèrent nullement fâcher l’agent de la sûreté.
 — J’y compte, mon garçon. Pour commencer, tu vas prendre cette photographie du coffre-fort et te rendre près du juge d’instruction. M. Patrigent, je le sais, est aussi perplexe que possible au sujet du prévenu. Tu lui expliqueras, comme venant de toi, ce que je viens de te faire voir, tu lui répéteras mes démonstrations, et ces in-
 
 <p align="right" aria-hidden="true">
-  106
+  109
 </p>
 
 * * *
@@ -3517,7 +3518,7 @@ Fanferlot, tout joyeux, avait roulé la photographie, pris son chapeau et s’ap
 — Voilà que tu m’interromps déjà, dit M. Lecoq, de sa voix la plus impérative; fais donc ce que je te dis et ne t’inquiète pas du reste. M. de Clameran n’est pas
 
 <p align="right" aria-hidden="true">
-  107
+  110
 </p>
 
 * * *
@@ -3539,7 +3540,7 @@ En un clin d’œil il eut dépouillé les apparences du chef de bureau, la crav
 Mais il ne resta soi qu’un instant. Assis devant une
 
 <p align="right" aria-hidden="true">
-  108
+  111
 </p>
 
 * * *
@@ -3565,18 +3566,18 @@ Et, en effet, il se mit à rédiger une de ces terribles ordonnances de « non-l
 « Attendu qu’il n’existe pas contre le prévenu Prosper Bertomy des charges suffisantes; vu l’article 128 du Code d’instruction criminelle, déclarons qu’il n’y a lieu
 
 <p align="right" aria-hidden="true">
-  109
+  112
 </p>
 
 * * *
 
-de suivre, quant à présent, contre ledit, ordonnons qu’il sera extrait de la maison où il est détenu, et qu’il sera mis en liberté par le gardien, etc. »
+de suivre, *quant à présent*, contre ledit, ordonnons qu’il sera extrait de la maison où il est détenu, et qu’il sera mis en liberté par le gardien, etc. »
 
 Lorsqu’il eut achevé:
 
 — Allons, dit-il à son greffier Sigault, voici un de ces crimes encore dont la justice n’a jamais le mot. Encore un dossier à déposer aux archives du greffe.
 
-Et de sa main, sur la couverture, il inscrivit le numéro d’ordre: Dossier no 113.
+Et de sa main, sur la couverture, il inscrivit le numéro d’ordre: *Dossier nº* 113.
 
 
 <h2 id="VII" align="center" style="font-weight: 100; border: none; font-size: 2em;">
@@ -3602,7 +3603,7 @@ L’opinion a des rigueurs plus redoutables les « secrets! »
 En ce moment où la liberté lui était rendue, Prosper
 
 <p align="right" aria-hidden="true">
-  110
+  113
 </p>
 
 * * *
@@ -3630,7 +3631,7 @@ Si encore il eût pu compter sur un ami! Mais quel ami le croirait, quand son p�
 Au plus fort de ces tortures, les plus poignantes qu’on puisse imaginer, le nom de Nina Gypsy monta à ses lèvres.
 
 <p align="right" aria-hidden="true">
-  111
+  114
 </p>
 
 * * *
@@ -3666,7 +3667,7 @@ Ce fut pour le malheureux caissier un chagrin ajouté à tous ses chagrins.
 — Non, monsieur. Quand votre père est sorti, ce matin à huit heures, il m’a dit qu’il laissait dans votre appar-
 
 <p align="right" aria-hidden="true">
-  112
+  115
 </p>
 
 * * *
@@ -3702,7 +3703,7 @@ Sa lecture faite, il tendit la main au gros monsieur.
 — Mon père, monsieur, fit-il, me dit que vous êtes son
 
 <p align="right" aria-hidden="true">
-  113
+  116
 </p>
 
 * * *
@@ -3726,7 +3727,7 @@ Cette question ralluma toutes les colères du caissier, ses yeux lancèrent des 
 — Eh bien! après? dit froidement l’homme aux favoris roux; ne venez-vous pas de m’affirmer que le sacrifice de votre vie est fait? Le nageur habile, que des malfaiteurs jettent à l’eau, se garde bien de revenir immédiatement à la surface; il plonge, au contraire, il nage sous l’eau tant que sa respiration le lui permet, il reparaît le plus loin possible, il prend terre hors de vue, et c’est quand on le croit perdu, noyé, qu’il surgit tout à coup et se venge. Vous avez un ennemi? Une imprudence seule peut le livrer. Mais tant qu’il vous verra debout, il aura peur.
 
 <p align="right" aria-hidden="true">
-  114
+  117
 </p>
 
 * * *
@@ -3758,7 +3759,7 @@ La qualification de « particulier » sembla blesser Prosper.
 — Hum! fit M. Verduret, voilà un mortel orné de bien des qualités, et je suis ravi à l’idée que je vais faire sa connaissance. Car, il faut que je vous l’avoue, je lui ai écrit en votre nom un petit billet pour le prier de venir jusqu’ici, et il a fait répondre qu’il viendrait.
 
 <p align="right" aria-hidden="true">
-  115
+  118
 </p>
 
 * * *
@@ -3798,7 +3799,7 @@ Une fois assis dans le salon:
 Prosper semblait à peine entendre, préoccupé de cette
 
 <p align="right" aria-hidden="true">
-  116
+  119
 </p>
 
 * * *
@@ -3830,7 +3831,7 @@ Ce conseil révoltait la fierté de Prosper. Il n’éleva cependant aucune obje
 — Mon oncle!… Tu sais que depuis que j’ai décliné la proposition qu’il me faisait d’entrer dans ses bureaux
 
 <p align="right" aria-hidden="true">
-  117
+  120
 </p>
 
 * * *
@@ -3860,7 +3861,7 @@ Il fallut, pour le tirer de ses sombres méditations, la voix railleuse de l’h
 — Voilà les amis! disait M. Verduret.
 
 <p align="right" aria-hidden="true">
-  118
+  121
 </p>
 
 * * *
@@ -3892,7 +3893,7 @@ Cette résistance ne surprit pas M. Verduret.
 — Oui, je le veux. Allons, morbleu! un peu d’assurance, donc, et de la confiance. Vite, allez faire un brin de toilette, il se fait tard, j’ai faim, nous déjeunerons en route, tout en causant.
 
 <p align="right" aria-hidden="true">
-  119
+  122
 </p>
 
 * * *
@@ -3932,7 +3933,7 @@ Il était court, mais explicite:
 « Mon cher prosper, un ami qui connaît l’horreur de votre situation vous fait passer ce secours. Il est un cœur, sachez-le, qui a partagé toutes vos angoisses. Partez, quittez la France, vous êtes jeune, l’avenir vous appartient. Partez, et puisse cet argent vous porter bonheur. »
 
 <p align="right" aria-hidden="true">
-  120
+  123
 </p>
 
 * * *
@@ -3966,7 +3967,7 @@ Il ouvrit la porte et appela:
 Le concierge, homme fort poli, s’approcha en tortil-
 
 <p align="right" aria-hidden="true">
-  121
+  124
 </p>
 
 * * *
@@ -4004,7 +4005,7 @@ Son examen terminé:
 Si Prosper avait eu d’abord quelques répugnances à s’abandonner entièrement à l’ami de son père, ces répugnances, une à une, s’évanouissaient.
 
 <p align="right" aria-hidden="true">
-  122
+  125
 </p>
 
 * * *
@@ -4013,7 +4014,7 @@ Il comprenait que, seul, à peine maître de soi, livré aux inspirations de son
 
 Lui, cependant, poursuivait, se parlant à lui-même, paraissant avoir absolument oublié la présence de Prosper:
 
-— Donc, l’envoi ne venant pas du voleur, ne peut venir, c’est évident, que de l’autre personne, qui était près de la caisse au moment du crime, qui n’a pu l’empêcher, et qui maintenant à des remords. La probabilité de deux personnes lors du vol, probabilité affirmée par l’éraillure, se change maintenant en certitude indiscutable. Ergo, j’avais raison.
+— Donc, l’envoi ne venant pas du voleur, ne peut venir, c’est évident, que de l’autre personne, qui était près de la caisse au moment du crime, qui n’a pu l’empêcher, et qui maintenant à des remords. La probabilité de deux personnes lors du vol, probabilité affirmée par l’éraillure, se change maintenant en certitude indiscutable. *Ergo*, j’avais raison.
 
 Le caissier écoutait de toutes ses forces, faisant des efforts d’imaginative pour comprendre quelque chose à ce monologue qu’il n’osait troubler.
 
@@ -4021,7 +4022,7 @@ Le caissier écoutait de toutes ses forces, faisant des efforts d’imaginative 
 
 Il prit la lettre, et fort lentement, à trois ou quatre reprises, la lut, en scandant les phrases, en pesant tous les mots.
 
-— Évidemment, murmurait-il, bien évidemment, cette lettre a été composée par une femme. Jamais un homme, voulant rendre service à un autre homme, et lui envoyant de l’argent, n’aurait mis ce mot: secours, blessant s’il en est. Un homme aurait mis: prêt, subside, fonds, ou n’importe quel équivalent, mais secours, jamais. Seule, une femme, ignorante des sottes susceptibilités masculines, a pu trouver toute naturelle l’idée que représente ce mot. Quant à cette phrase: « Il est un cœur, etc., » elle ne peut avoir été pensée que par une femme.
+— Évidemment, murmurait-il, bien évidemment, cette lettre a été composée par une femme. Jamais un homme, voulant rendre service à un autre homme, et lui envoyant de l’argent, n’aurait mis ce mot: *secours*, blessant s’il en est. Un homme aurait mis: *prêt, subside, fonds*, ou n’importe quel équivalent, mais *secours*, jamais. Seule, une femme, ignorante des sottes susceptibilités masculines, a pu trouver toute naturelle l’idée que représente ce mot. Quant à cette phrase: « Il est un cœur, etc., » elle ne peut avoir été pensée que par une femme.
 
 Prosper, cette fois, avait pu suivre le travail d’inductions de son protecteur.
 
@@ -4030,14 +4031,14 @@ Prosper, cette fois, avait pu suivre le travail d’inductions de son protecteur
 M. Verduret ne releva pas l’interruption. Peut-être ne l’avait-il pas entendue, peut-être ne lui convenait-il pas de discuter ses opinions.
 
 <p align="right" aria-hidden="true">
-  123
+  126
 </p>
 
 * * *
 
 — Tâchons, à présent, poursuivait-il, de découvrir où ont été découpés les mots qui composent ces trois phrases.
 
-Il s’approcha de la fenêtre et se mit à étudier les caractères collés dessus avec l’attention scrupuleuse d’un savant en us qui cherche à déchiffrer un vieux manuscrit à demi effacé.
+Il s’approcha de la fenêtre et se mit à étudier les caractères collés dessus avec l’attention scrupuleuse d’un savant en *us* qui cherche à déchiffrer un vieux manuscrit à demi effacé.
 
 — Petit caractère, disait-il, très-délicat, très-net, impression très-soignée, papier assez mince et fortement satiné! Ces mots n’ont été découpés, par conséquent ni dans un journal, ni même dans un volume de roman, ni même dans un livre de vente courante. Cependant, je les ai vus ces caractères-là, je les connais, Didot en emploie souvent de pareils ainsi que Mame, de Tours.
 
@@ -4058,7 +4059,7 @@ M. Verduret s’interrompit; le concierge rentrait, ramenant le commissionnaire 
 Et présentant au commissionnaire l’enveloppe de la lettre:
 
 <p align="right" aria-hidden="true">
-  124
+  127
 </p>
 
 * * *
@@ -4098,12 +4099,12 @@ Cette réponse sembla un peu déconcerter M. Verduret. Tant de précautions pris
 — Eh bien! mon garçon, je vais te donner, moi, dix francs par jour, rien que pour te promener, c’est-à-dire pour chercher le commissionnaire de ce matin. Tous les
 
 <p align="right" aria-hidden="true">
-  125
+  128
 </p>
 
 * * *
 
-soirs, vers huit heures, tu viendras à l’hôtel du Grand-Archange, sur le quai Saint-Michel, me rendre compte de tes promenades et te faire payer. Tu demanderas M. Verduret. Si tu trouves notre homme, je te donnerai cinquante francs. Le marché te convient-il?
+soirs, vers huit heures, tu viendras à l’hôtel du *Grand-Archange*, sur le quai Saint-Michel, me rendre compte de tes promenades et te faire payer. Tu demanderas M. Verduret. Si tu trouves notre homme, je te donnerai cinquante francs. Le marché te convient-il?
 
 — Peste! je le crois bien, bourgeois.
 
@@ -4124,7 +4125,7 @@ Il s’assit sur ces derniers mots, et rapidement griffonna au crayon deux ou tr
 — Vous êtes prêt, demanda-t-il, pour notre visite à M. Fauvel? Oui? Alors partons, nous aurons bien gagné notre déjeuner.
 
 <p align="right" aria-hidden="true">
-  126
+  129
 </p>
 
 * * *
@@ -4150,7 +4151,7 @@ Le banquier, sur ces mots, se dressa d’un bond, plus bouleversé que s’il e�
 Prosper! s’écria-t-il, d’une voix étranglée par la colère, comment, il ose…
 
 <p align="right" aria-hidden="true">
-  127
+  130
 </p>
 
 * * *
@@ -4180,7 +4181,7 @@ Pendant une bonne minute, au moins, M. Verduret examina curieusement ces deux en
 — Ah! il part, répéta-t-il à plusieurs reprises, il part!…
 
 <p align="right" aria-hidden="true">
-  128
+  131
 </p>
 
 * * *
@@ -4216,7 +4217,7 @@ Bientôt, il laissa échapper une exclamation de satisfaction.
 À l’extrémité de cette place improvisée, venait d’apparaître Cavaillon, il était tête nue, il courait.
 
 <p align="right" aria-hidden="true">
-  129
+  132
 </p>
 
 * * *
@@ -4252,7 +4253,7 @@ Lui-même donnait l’exemple, et c’est presque au pas gymnastique qu’il rem
 Arrivé devant le no 81, M. Verduret s’interrompit et s’arrêta du même coup.
 
 <p align="right" aria-hidden="true">
-  130
+  133
 </p>
 
 * * *
@@ -4292,7 +4293,7 @@ C’était bien la nièce de M. Fauvel, en effet, belle, plus que jamais, de cet
 Debout, au milieu du salon, près d’une table couverte
 
 <p align="right" aria-hidden="true">
-  131
+  134
 </p>
 
 * * *
@@ -4322,7 +4323,7 @@ Il s’arrêta.
 — Tant d’événements sont survenus depuis ce jour, que j’ai pu croire oublié, ne fût-ce que pour une heure, ce serment arraché à ma faiblesse. C’est au hasard, c’est, du moins, à une volonté qui n’est pas la mienne, que je dois le bonheur de me trouver une fois encore près de
 
 <p align="right" aria-hidden="true">
-  132
+  135
 </p>
 
 * * *
@@ -4344,7 +4345,7 @@ Madeleine essaya de l’interrompre d’un geste doux et suppliant; il ne la vit
 Plus immobile et plus blanche qu’une statue, Madeleine courbait le front sous cet orage d’une passion im-
 
 <p align="right" aria-hidden="true">
-  133
+  136
 </p>
 
 * * *
@@ -4376,7 +4377,7 @@ Mais une réflexion soudaine l’arrêta; elle eut un mouvement désespéré et 
 — Votre pitié vient trop tard, reprit-il avec une déchirante résignation. Il n’est plus de bonheur possible pour celui qui, comme moi, a entrevu des félicités divines. Rien ne saurait m’attacher à la vie. Vous avez tué
 
 <p align="right" aria-hidden="true">
-  134
+  137
 </p>
 
 * * *
@@ -4410,7 +4411,7 @@ Par ce qu’il souffrait, Prosper comprit ce qu’elle avait dû souffrir. Car e
 Et il s’étonnait que Gypsy, — la violence même, — restât là à pleurer et ne se levât pas pour protester, pour le maudire.
 
 <p align="right" aria-hidden="true">
-  135
+  138
 </p>
 
 * * *
@@ -4438,7 +4439,7 @@ Il ne pouvait méconnaître l’influence souveraine de cet homme qui, le matin 
 De quelle mystérieuse puissance disposait donc cet inconnu, pour préparer ainsi, à son gré, les événements?
 
 <p align="right" aria-hidden="true">
-  136
+  139
 </p>
 
 * * *
@@ -4474,7 +4475,7 @@ Le ton de M. Verduret, moitié de raillerie, moitié de commisération, n’éta
 — Puisqu’il en est ainsi, s’écria-t-il, merci de vos services, monsieur, je n’en ai que faire. Si je combattais pour défendre mon honneur et ma vie, c’est que j’espé-
 
 <p align="right" aria-hidden="true">
-  137
+  140
 </p>
 
 * * *
@@ -4512,7 +4513,7 @@ Alors même qu’il le sait, qu’il se sent perdu, près de mourir, le malade p
 — Libre!… Non, elle ne l’est pas. En vous rendant sa parole, elle obéissait à une volonté supérieure et irrésistible. Elle se dévouait… Pour qui? Nous le saurons bientôt, et le secret de son dévoûment nous apprendra le secret de la machination dont vous êtes victime.
 
 <p align="right" aria-hidden="true">
-  138
+  141
 </p>
 
 * * *
@@ -4546,7 +4547,7 @@ L’homme aux favoris roux hocha tristement la tête; en un moment, sa physionom
 Pendant plus d’une minute, Prosper garda le silence.
 
 <p align="right" aria-hidden="true">
-  139
+  142
 </p>
 
 * * *
@@ -4555,7 +4556,7 @@ Pendant plus d’une minute, Prosper garda le silence.
 
 Ce jour-là même, Prosper, fidèle à sa parole, vendait son mobilier et adressait à ses amis une lettre où il annonçait son prochain départ pour San-Francisco.
 
-Et le soir il s’installait, ainsi que M. Verduret, à l’hôtel du Grand-Archange.
+Et le soir il s’installait, ainsi que M. Verduret, à l’hôtel du *Grand-Archange*.
 
 M<sup>me</sup> Alexandre lui avait donné sa plus jolie chambre, bien laide si on la comparait au salon si coquet de la rue Chaptal. Mais il n’était pas en état de faire cette différence. Étendu sur un méchant canapé, il repassait les événements de la journée, trouvant une âcre jouissance à son isolement.
 
@@ -4584,7 +4585,7 @@ Voici exactement ce fragment:
 Prosper ne dormit pas cette nuit-là.
 
 <p align="right" aria-hidden="true">
-  140
+  143
 </p>
 
 * * *
