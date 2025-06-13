@@ -4589,3 +4589,343 @@ Prosper ne dormit pas cette nuit-là.
 </p>
 
 * * *
+
+<h2 id="I" align="center" style="font-weight: 100; border: none; font-size: 2em;">
+  IX
+</h2>
+
+Non loin du Palais-Royal, dans la rue Saint-Honoré, à l’enseigne de la *Bonne foi*, est un petit établissement, moitié café moitié débit de prunes, très-fréquenté par les employés du quartier.
+
+’est dans une des salles de cet estaminet modeste que le lendemain de sa mise en liberté, le vendredi, Prosper attendait M. Verduret, qui lui avait donné rendez-vous vers quatre heures.
+
+Quatre heures sonnèrent; M. Verduret, qui est la ponctualité même, parut. Il était plus rouge encore que la veille, et comme la veille il avait cet air admirable de parfait contentement de soi.
+
+Dès que le garçon auquel il avait demandé une choppe se fut éloigné:
+
+— Eh bien! demanda-t-il à Prosper, toutes nos commissions sont-elles faites?
+
+— Oui, monsieur.
+
+— Vous avez vu le costumier?
+
+— Je lui ai remis votre lettre. Tout ce que vous demandez vous sera apporté demain au *Grand-Archange*.
+
+— Alors tout va bien, car je n’ai pas perdu mon temps, et j’apporte de grandes nouvelles.
+
+Le débit de la *Bonne foi* est à peu près désert vers quatre heures. Le coup de feu du café du matin est passé, le moment de l’absinthe n’est pas arrivé encore: M. Verduret et Prosper pouvaient causer à l’aise, sans redouter l’oreille indiscrète des voisins.
+
+M. Verduret avait sorti son calepin, ce calepin précieux qui, pareil aux livres enchantés des féeries, a une réponse pour toutes les questions.
+
+<p align="right" aria-hidden="true">
+  144
+</p>
+
+* * *
+
+— En attendant ceux de nos émissaires auxquels j’ai donné rendez-vous ici, dit-il, occupons-nous un peu de M. de Lagors.
+
+À ce nom, Prosper ne protesta pas comme il l’avait fait la veille. Pareil à ces insectes imperceptibles qui, une fois qu’ils se sont glissés dans un tronc d’arbre, le dévorent en une nuit, le soupçon, quand il a pénétré dans notre esprit, s’y développe et bientôt y détruit les plus fortes croyances.
+
+La visite de Lagors, le fragment de lettre de Gypsy, avaient inspiré à Prosper des doutes qui, d’heure en heure, pour ainsi dire, avaient grandi et s’étaient fortifiés.
+
+— Savez-vous, mon cher ami, poursuivit M. Verduret, de quel pays, au juste, est le jeune monsieur qui se porte si fort votre ami?
+
+— Il est, monsieur, du pays de M<sup>me</sup> Fauvel, de Saint-Remy.
+
+— En êtes-vous certain?
+
+— Oh! parfaitement, monsieur. Non-seulement il me l’a dit bien souvent, mais je l’ai encore entendu dire à M. Fauvel, je l’ai entendu répéter cent fois à M<sup>me</sup> Fauvel lorsqu’elle parlait de sa parente, la mère de Lagors, qu’elle aime beaucoup.
+
+— Ainsi, il n’y a, à cet égard, ni doute ni erreur possibles?
+
+— Non, monsieur.
+
+— Eh! eh! fit M. Verduret, voilà qui commence à être pour le moins singulier.
+
+Et il sifflotait entre ses dents, ce qui, chez lui, est un signe manifeste d’une satisfaction intime et supérieure.
+
+— Qu’est-ce qui est singulier, monsieur? demanda Prosper intrigué.
+
+— Ce qui arrive, parbleu! répondit le gros homme, ce que j’avais flairé. Peste! continua-t-il — imitant le débit des montreurs de curiosités en foire — c’est une ville charmante, Saint-Remy, six mille habitants, boulevards délicieux sur l’emplacement des fortifications, hô-
+
+<p align="right" aria-hidden="true">
+  145
+</p>
+
+* * *
+
+tel de ville très-beau, fontaines abondantes, grand commerce de charbons, filatures de soie, maison de santé très-renommée, etc.
+
+Prosper était comme sur des charbons ardents.
+
+— De grâce, monsieur, commença-t-il.
+
+— On y connaît, poursuivait M. Verduret, un arc de triomphe romain qui n’a pas son pareil et un mausolée grec, mais pas le moindre Lagors. Saint-Remy est la patrie de Nostradamus mais non celle de votre ami.
+
+— Cependant, monsieur, j’ai eu des preuves…
+
+— Naturellement. Mais les preuves, voyez-vous, cela se fabrique; les parentés, cela s’improvise. Vos dépositions sont suspectes, mes témoignages sont irrécusables. Pendant que vous vous désoliez en prison, je dressais mes batteries et je récoltais des munitions pour ouvrir le feu. J’ai écrit à Saint-Remy et j’ai des réponses.
+
+— Ne me les communiquerez-vous pas, monsieur?
+
+— Un peu de patience, dit M. Verduret en feuilletant son calepin. Ah! voici la première, le numéro 1. Saluez le style, c’est officiel.
+
+Il lut:
+
+« LAGORS. — Très-ancienne famille, originaire de Maillane, fixée à Saint-Remy depuis un siècle… »
+
+— Vous voyez bien! s’écria Prosper.
+
+— Si vous me laissiez finir, hein? dit M. Verduret.
+
+Et il poursuivit:
+
+« Le dernier des Lagors (Jules-René-Henri), portant, sans droits bien constatés, le titre de comte, épousa, en 1829, la demoiselle Rosalie-Clarisse Fontanet, de Tarascon; est décédé en décembre 1848, sans héritier mâle, laissant seulement deux filles. Les registres de l’état civil consultés ne font mention d’aucune personne, dans l’arrondissement, portant le nom de Lagors. »
+
+— Eh bien! demanda le gros homme, que dites-vous du renseignement?
+
+— Prosper était abasourdi.
+
+— Comment alors M. Fauvel traite-t-il Raoul comme son neveu?
+
+<p align="right" aria-hidden="true">
+  146
+</p>
+
+* * *
+
+— Comme le neveu de sa femme, vous voulez dire. Mais examinons la notice numéro deux. Elle n’est pas officielle, mais elle éclaire d’un jour précieux les vingt mille livres de rentes de votre ami:
+
+« *Jules-René-Henri* de Lagors, dernier de son nom, est mort à Saint-Remy le 29 décembre 1848, dans un état voisin de la misère. Il avait eu une certaine fortune, l’entreprise d’une magnanerie modèle le ruina.
+
+« Il n’a pas laissé de garçon, mais seulement deux filles, dont l’une est institutrice à Aix, et l’autre mariée à un petit négociant d’Orgon. Sa veuve, qui habite le mas de la Montagnette, ne vit exactement que des libéralités d’une de ses parentes, femme d’un riche banquier de la capitale. On ne connaît personne du nom de Lagors dans l’arrondissement d’Arles. »
+
+— Voilà tout! fit M. Verduret, pensez-vous que ce soit assez?
+
+— C’est-à-dire, monsieur, que je me demande si je suis bien éveillé.
+
+— Je conçois cela. Cependant, j’ai une remarque à vous faire. Des gens attentifs objecteront peut-être que M<sup>me</sup> veuve de Lagors a pu, après la mort de son mari, avoir un enfant naturel non avoué et portant son nom. Cette objection est détruite par l’âge de votre ami. Raoul a vingt-quatre ans, et il y a moins de vingt ans que M. de Lagors est mort.
+
+Il n’y avait rien à répliquer, et Prosper le comprit bien.
+
+— Mais alors, fit-il, devenu pensif, qui serait donc Raoul?
+
+— Je l’ignore. Franchement, il est plus malaisé de découvrir qui il est que de savoir qui il n’est pas. Un seul homme, sur ce point, pourrait nous renseigner, mais il se garderait bien de rien dire.
+
+— M. de Clameran, n’est-ce pas?
+
+— Juste.
+
+— Toujours il m’a inspiré une inexplicable répulsion, dit Prosper. Ah! si on pouvait avoir son dossier à celui-là!
+
+<p align="right" aria-hidden="true">
+  147
+</p>
+
+* * *
+
+— J’ai déjà quelques petites notes, répondit M. Verduret, qui m’ont été fournies par votre père, lequel connaît bien la famille Clameran; elles sont fort succintes, mais j’en attends d’autres.
+
+— Que vous a dit mon père?
+
+— Rien de favorable, rassurez-vous. Voici au surplus pour votre édification, le résumé de ses renseignements:
+
+« Louis de Clameran est né au château de Clameran, près de Tarascon. Il avait un frère aîné nommé Gaston. En 1842, à la suite d’une rixe où il avait eu le malheur de tuer un homme et d’en blesser grièvement un autre, Gaston fut obligé de s’expatrier. C’était un garçon loyal, franc, honnête, que tout le monde aimait. Louis, au contraire, avait les plus détestables instincts et était haï.
+
+« À la mort de son père, Louis vint à Paris, et, en moins de deux ans, dévora, non-seulement sa part de l’héritage paternel, mais aussi la part de son frère exilé.
+
+« Ruiné, criblé de dettes, Louis de Clameran se fit soldat, et se conduisit si mal au régiment qu’il fut envoyé aux compagnies de discipline.
+
+« À sa sortie du service, on le perd totalement de vue; tout ce qu’on sait, c’est qu’il habita successivement l’Angleterre et l’Allemagne, où il eut une horrible affaire dans une ville de jeux.
+
+« En 1865, nous le retrouvons à Paris. Il était dans la dernière des misères et fréquentait les pires sociétés, vivant uniquement dans le monde des escrocs et des filles.
+
+« Il avait usé les plus honteux expédients lorsque, tout à coup, il apprit le retour de son frère en France. Gaston avait fait fortune au Mexique. Mais, jeune encore, habitué à une vie active, il venait d’acheter, près d’Oloron, une usine de fer, quand, il y a six mois, il est mort entre les bras de son frère Louis. Cette mort a donné à notre Clameran et une grande fortune et le titre de marquis. »
+
+Prosper réfléchissait. Depuis vingt-quatre heures que
+
+<p align="right" aria-hidden="true">
+  148
+</p>
+
+* * *
+
+M. Verduret travaillait devant lui, il commençait à se pénétrer de sa méthode d’inductions. Comme lui, il essayait de grouper les faits, d’ajuster les circonstances à des soupçons plus ou moins probables.
+
+— De ce que vous m’apprenez, fit-il enfin, il résulte que M. de Clameran, le nôtre, bien entendu, était dans une profonde misère, lorsque je l’ai aperçu pour la première fois chez M. Fauvel.
+
+— Évidemment.
+
+Et c’est peu après que Lagors est arrivé de sa province?
+
+— Justement.
+
+— Et c’est un mois environ après son arrivée que Madeleine, tout à coup, m’a banni.
+
+— Allons donc!… s’écria M. Verduret, vous commencez à vous former et à comprendre la signification des faits.
+
+Il s’interrompit à la vue d’un nouveau consommateur qui entrait à la *Bonne-Foi*.
+
+C’était un domestique de bonne maison, bien peigné, mieux rasé, portant dignement ses favoris noirs à la Bergami; il avait de belles bottes plissées à revers, la culotte jaune, et le gilet à manches, à raies rouges et noires.
+
+Après un coup d’œil rapide, mais sûr, jeté autour de la salle, il marcha rapidement vers la table de M. Verduret.
+
+— Eh bien! maître Joseph Dubois? interrogea le gros homme.
+
+— Ah! patron, ne m’en parlez pas, répondit le domestique, ça chauffe, voyez-vous, ça chauffe ferme.
+
+Toute l’attention dont Prosper était capable, il la concentrait sur le superbe domestique.
+
+Il lui semblait qu’il connaissait cette physionomie. Il se disait que très-certainement il avait déjà vu quelque part ce front fuyant et ces yeux d’une agaçante mobilité. Mais où, mais en quelles circonstances? Il cherchait et ne trouvait pas.
+
+<p align="right" aria-hidden="true">
+  149
+</p>
+
+* * *
+
+Cependant, maître Joseph s’était assis, non à la table de M. Verduret, mais à la table voisine, et il avait demandé une verre d’absinthe qu’il préparait lentement, laissant l’eau tomber goutte à goutte de très-haut, selon la formule.
+
+— Parle! lui dit M. Verduret.
+
+— Pour commencer, patron, je dois vous avouer que tout n’est pas roses dans le métier de valet de chambre-cocher de M. de Clameran.
+
+— Au fait! au fait! tu te plaindras demain.
+
+— Bon, j’y suis. Donc, hier, mon bourgeois est sorti à pied sur les deux heures. Comme de juste, je l’ai suivi. Savez-vous où il allait? La bonne farce! Il se rendait au *Grand-Archange*, au rendez-vous de la petite dame.
+
+— Va donc; on lui a dit qu’elle était partie. Après?
+
+— Après! Ah! il n’était pas content du tout; je vous assure. Il est rentré tout courant à l’hôtel, où l’autre, M. Raoul de Lagors, l’attendait. Non, vrai, cet homme-là n’a pas son pareil pour jurer. Le Raoul lui a demandé ce qu’il y avait de nouveau qui le mettait si fort en colère. « — Il n’y a rien, a répondu mon bourgeois; rien, sinon que la coquine a décampé, qu’on ne sait où elle est, qu’elle nous glisse entre les doigts. » Alors, ils ont paru très-vexés et très-inquiets tous les deux. « — Sait-elle donc quelque chose de sérieux? a demandé Lagors. — Elle ne sait rien que ce que je t’ai dit, a fait Clameran, mais ce rien tombant dans l’oreille d’un homme ayant du flair peut mettre sur la trace de la vérité. »
+
+M. Verduret sourit, en homme qui avait ses raisons pour apprécier à leur juste valeur les craintes de M. de Clameran.
+
+— Eh! fit-il, sais-tu qu’il n’est pas absolument dépourvu d’intelligence, ton bourgeois? Et ensuite?
+
+— Là-dessus, patron, voilà le Lagors qui devient vert, et qui s’écrie: « — Si c’est si grave, il faut se défaire de cette gueuse! » Il va bien, le petit! Mais mon bourgeois s’est mis à rire et à hausser les épaules. « — Tu n’es qu’un niais, a-t-il répondu, quand on est importuné par
+
+<p align="right" aria-hidden="true">
+  150
+</p>
+
+* * *
+
+une femme du genre de celle-là, on prend ses mesures pour s’en faire débarrasser administrativement. » Cette idée les a fait beaucoup rire.
+
+— Je crois bien! approuva M. Verduret; elle est excellente l’idée; le malheur est qu’il est trop tard pour l’exécuter. Le rien, que redoutait Clameran, est déjà tombé dans une oreille intelligente. Cependant, comme je ne veux pas que ces gaillards-là brouillent mes cartes, il faut aviser le bureau des mœurs.
+
+— C’est fait, patron, répondit joyeusement maître Joseph.
+
+C’est avec une curiosité fiévreuse, haletante, que Prosper écoutait ce rapport, dont chaque mot, pour ainsi dire, éclairait d’un jour nouveau les événements. Il s’expliquait, maintenant, croyait-il, le fragment de lettre de Gypsy. Ce Raoul, qui avait eu toute sa confiance, ne pouvait être, il le comprenait, qu’un misérable. Mille circonstances inaperçues jadis lui revenaient, et il se demandait comment il avait pu si longtemps être frappé d’aveuglement.
+
+Maître Joseph, cependant, poursuivait:
+
+— Hier, après son dîner, mon bourgeois s’est fait beau comme un fiancé. Je l’ai rasé, frisé, parfumé, adonisé, après quoi il est monté en voiture et je l’ai conduit rue de Provence, chez M. Fauvel.
+
+— Comment! s’écria Prosper, après ses paroles insultantes, le jour du vol, il a été assez hardi pour s’y représenter.
+
+— Oui, mon jeune monsieur, il a eu cette audace, et même il a osé y rester toute la soirée, jusqu’à près de minuit, à mon grand détriment, car j’ai été, sur mon siége, trempé comme une soupe.
+
+— Quel air avait-il en sortant? demanda M. Verduret.
+
+— L’air moins content qu’en arrivant, c’est positif. Quand, mon cheval bouchonné et ma voiture remisée, je suis allé lui demander s’il n’avait besoin de rien, j’ai trouvé sa porte fermée, et il m’a crié des injures au travers.
+
+<p align="right" aria-hidden="true">
+  151
+</p>
+
+* * *
+
+Et pour s’aider à digérer cette humiliation, maître Joseph avala une gorgée d’absinthe.
+
+— C’est là tout? demanda M. Verduret.
+
+— Pour hier, oui patron. Ce matin, le bourgeois s’est levé tard, et toujours d’une humeur de dogue. À midi, l’autre, le Raoul, est arrivé, furibond, lui aussi. Aussitôt ils ont commencé à se disputer, mais à se disputer… tenez, des crocheteurs auraient rougi de les voir. À un moment, mon grand escogriffe de bourgeois avait empoigné le petit à la gorge, et il le secouait comme un prunier; j’ai bien cru qu’il allait l’étrangler. Mais le Raoul, pas bête, vous a tiré de sa poche un joli couteau pointu, et ma fois l’autre a eu peur, il a lâché prise et s’est calmé.
+
+— Mais, que disaient-ils?
+
+— Ah! voilà le *hic*, patron, fit piteusement maître Joseph; ils parlaient anglais, les canailles, de telle sorte que je n’ai rien compris. Ce dont je suis sûr, par exemple, c’est qu’ils se disputaient à propos d’argent.
+
+— Comment le sais-tu?
+
+— Par la raison qu’en vue de l’Exposition universelle, j’ai appris comment on dit: Argent, dans toutes les langues de l’Europe, et que ce mot revenait à chaque instant dans leur conversation.
+
+M. Verduret, les sourcils froncés, marmottait un monologue inintelligible, et Prosper, qui l’observait, se demandait si par hasard il avait la prétention de reconstruire, par la seule force de la réflexion, la dispute dont le sens précis avait échappé au domestique.
+
+— Pour finir, reprit maître Joseph, quand mes coquins ont été calmés, ils se sont remis à parler français. Mais, bast! ils n’ont plus causé que de choses insignifiantes, d’un bal travesti qui a lieu demain chez des banquiers. Seulement, en reconduisant le petit, mon bourgeois lui a dit: — « Puisque cette scène est inévitable, autant qu’elle ait lieu aujourd’hui même, ainsi reste chez toi, au Vésinet, ce soir. » Raoul a répondu: — C’est entendu.
+
+<p align="right" aria-hidden="true">
+  152
+</p>
+
+* * *
+
+La nuit venait. L’estaminet, peu à peu, s’emplissait de consommateurs qui, tous à la fois, criaient pour avoir de l’absinthe ou du bitter.
+
+Les garçons, montés sur des tabourets, approchaient des allumettes des becs de gaz qui s’enflammaient avec de sourdes détonations.
+
+— Il faut filer, dit M. Verduret à Joseph, ton maître peut avoir besoin de toi, et, de plus, voici quelqu’un qui veut me parler. À demain.
+
+— Ce quelqu’un n’était autre que Cavaillon, plus troublé et plus tremblant que jamais. Il promenait de tous côtés des regards inquiets, plus tressaillant qu’un filou qui sait à ses trousses toute la police de Paris.
+
+Lui non plus, il ne s’assit pas à la table de M. Verduret. C’est furtivement qu’il donna une poignée de main à Prosper, et ce n’est qu’après s’être assuré que personne ne l’observait, qu’il se risqua à remettre à M. Verduret un petit paquet en disant:
+
+— Voici ce qu’elle a trouvé dans un placard.
+
+C’était un paroissien richement relié. M. Verduret le feuilleta rapidement, et il eut bientôt trouvé les pages où avaient été découpés les mots collés sur la lettre reçue la veille par Prosper.
+
+— J’avais des preuves morales, dit-il en tendant le livre au jeune homme, voici une preuve matérielle qui à elle seule peut vous sauver.
+
+À la vue de ce livre, Prosper avait pâli. C’est qu’il le reconnaissait. Ce paroissien, c’est lui qui l’avait donné à Madeleine en échange de la médaille bénie.
+
+Et, en effet, sur la première page, Madeleine avait écrit: *Souvenir* de Notre-Dame-de-Fourvières, 17 janvier 1866.
+
+— Mais ce livre est à Madeleine, s’écria-t-il.
+
+M. Verduret ne répondit pas. Il venait de se lever pour aller à un jeune homme vêtu comme les garçons marchands de vins, qui venait d’entrer.
+
+À peine eut-il jeté les yeux sur un billet que ce garçon lui remit, qu’il revint vers la table dans un état d’agitation extraordinaire.
+
+<p align="right" aria-hidden="true">
+  153
+</p>
+
+* * *
+
+— Nous les tenons peut-être! s’écria-t-il.
+
+Et jetant sur la table une pièce de cinq francs, sans adresser un mot à Cavaillon, il entraîna Prosper, stupéfait.
+
+— Quelle fatalité, disait-il, tout en courant le long du trottoir, nous allons peut-être les manquer. À coup sûr, nous arriverons à la gare Saint-Lazare trop tard pour le train de Saint-Germain.
+
+— Mais de quoi s’agit-il, au nom du ciel? demandait Prosper.
+
+— Venez, venez, nous causerons en route.
+
+Arrivé à la place du Palais-Royal, M. Verduret s’arrêta devant un des fiacres de la station, dont il avait, d’un regard, évalué les chevaux.
+
+Combien veux-tu pour me conduire au Vésinet? demanda-t-il au cocher.
+
+— C’est que je ne connais pas bien le chemin, par là-bas…
+
+Mais ce nom du Vésinet disait tout à Prosper.
+
+— Je vous indiquerai la route, fit-il vivement.
+
+— Alors, reprit le cocher, à cette heure, par le temps de chien qu’il fait, ce sera… vingt-cinq francs.
+
+— Et pour aller vite, combien demandes-tu de plus?
+
+— Dame! bourgeois, ce sera à votre générosité; mais si vous mettiez trente-cinq francs, je crois…
+
+— Tu en auras cent, interrompit M. Verduret, si tu rattrapes une voiture qui a sur nous une demi-heure d’avance.
+
+— Tonnerre de Brest! s’écria le cocher transporté, montez donc, vous me faites perdre une minute.
+
+Et, enveloppant ses maigres rosses d’un triple coup de fouet, il lança sa voiture au grand galop dans la rue de Valois.
+
+<p align="right" aria-hidden="true">
+  154
+</p>
+
+* * *
