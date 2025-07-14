@@ -2265,7 +2265,7 @@ Il y eut un long silence; enfin Prosper reprit:
 
 — Non, répondit Prosper d’une voix étouffée, non…
 
-— Il y a un an de cela; vous aimiez Mlle Madeleine, alors, du moins vous me l’écriviez…
+— Il y a un an de cela; vous aimiez M<sup>lle</sup> Madeleine, alors, du moins vous me l’écriviez…
 
 — Mais je l’aime, mon père, plus que jamais; je n’ai jamais cessé de l’aimer.
 
@@ -2665,7 +2665,7 @@ Il avait espéré arracher un cri à la passion de Prosper, blessée au vif; poi
 
 — Le juge respira. Enfin, il trouvait un défaut à l’armure du prévenu.
 
-— Serait-ce Mlle Madeleine qui vous aurait éloigné? demanda-t-il.
+— Serait-ce M<sup>lle</sup> Madeleine qui vous aurait éloigné? demanda-t-il.
 
 Prosper garda le silence. Il était visiblement très-agité.
 
@@ -3842,7 +3842,7 @@ nous sommes presque brouillés. Voici un mois au moins que je n’ai mis les pie
 
 — Par ton protégé, le jeune Cavaillon. Mon oncle, depuis l’affaire, est, à ce qu’il paraît, plus consterné que toi. C’est à peine si on le voit dans les bureaux, on dirait qu’il relève de quelque terrible maladie.
 
-— Et M<sup>me</sup> Fauvel, et… — le caissier hésita — et Mlle Madeleine.
+— Et M<sup>me</sup> Fauvel, et… — le caissier hésita — et M<sup>lle</sup> Madeleine.
 
 — Oh! fit Raoul d’un ton léger, ma tante est toujours dévote; elle fait dire des messes à l’intention du coupable. Quant à ma belle et glaciale cousine, elle ne saurait s’occuper de détails vulgaires, toute absorbée qu’elle est par les préparatifs du bal travesti que donnent après-demain MM. Jandidier. Elle a déniché, m’a dit une de ses amies, une couturière de génie, inconnue, qui lui fait un costume de fille d’honneur de Catherine de Médicis, qui est une merveille.
 
@@ -4500,7 +4500,7 @@ Prosper eut un geste terrible.
 
 — Monsieur!…
 
-— Oui! ce n’est pas fort délicat peut-être; mais qui veut la fin veut les moyens. J’ai écouté et je m’en applaudis, puisque je puis, à présent, vous dire: Reprenez courage, Prosper, Mlle Madeleine vous aime; elle n’a jamais cessé de vous aimer.
+— Oui! ce n’est pas fort délicat peut-être; mais qui veut la fin veut les moyens. J’ai écouté et je m’en applaudis, puisque je puis, à présent, vous dire: Reprenez courage, Prosper, M<sup>lle</sup> Madeleine vous aime; elle n’a jamais cessé de vous aimer.
 
 Alors même qu’il le sait, qu’il se sent perdu, près de mourir, le malade prête l’oreille aux promesses du médecin. L’affirmation si précise de M. Verduret éclaira d’une lueur d’espoir la douleur de Prosper.
 
@@ -4572,15 +4572,15 @@ Il était couvert d’un écriture fine, l’écriture de Nina Gypsy, il n’y a
 
 Voici exactement ce fragment:
 
-« … de M. Raoul, j’ai été bien imp…
+« …de M. Raoul, j’ai été bien imp…
 
-« … tramé contre lui, dont jamais…
+« …tramé contre lui, dont jamais…
 
-« … avertir Prosper et alors…
+« …avertir Prosper et alors…
 
-« … meilleur ami, lui
+« …meilleur ami, lui
 
-« … main de mademoiselle Ma…
+« …main de mademoiselle Ma…
 
 Prosper ne dormit pas cette nuit-là.
 
@@ -4926,6 +4926,488 @@ Et, enveloppant ses maigres rosses d’un triple coup de fouet, il lança sa voi
 
 <p align="right" aria-hidden="true">
   154
+</p>
+
+* * *
+
+<h2 id="X" align="center" style="font-weight: 100; border: none; font-size: 2em;">
+  X
+</h2>
+
+Quand on quitte la petite gare du Vésinet, on trouve devant soi deux routes. L’une à gauche, macadamisée, soigneusement entretenue, mène au village, dont on aperçoit, à travers les arbres, l’église neuve: l’autre, à droite, nouvellement tracée et à peine sablée, conduit en plein bois.
+
+Le long de cette dernière qui, avant cinq ans, sera une rue, on ne rencontre encore que de rares maisons, bâtisses d’un goût déplorable, pour la plupart, s’élevant de loin en loin, au milieu d’éclaircies d’arbres, retraites champêtres de négociants parisiens, inhabitées pendant l’hiver.
+
+C’est au point de rencontre de ces deux routes que, sur les neuf heures du soir, Prosper fit arrêter le fiacre où il était monté, place du Palais-Royal, avec M. Verduret.
+
+Le cocher avait gagné ses cent francs. Les chevaux étaient exténués, mais il y avait cinq minutes que M. Verduret et Prosper distinguaient la lueur des lanternes d’une voiture de place comme la leur, trottant à une cinquantaine de mètres en avant.
+
+Descendu le premier du fiacre, M. Verduret tendit au cocher un billet de banque.
+
+— Voici, lui dit-il, ce que je t’ai promis. Tu vas aller à la première auberge que tu trouveras à main droite en entrant dans le village. Si dans une heure nous ne t’avons pas rejoint, tu seras libre de rentrer à Paris.
+
+Le cocher se confondit en remercîments: mais ni Prosper ni son compagnon ne les entendirent.
+
+Ils s’étaient élancés au pas de course sur le chemin désert.
+
+<p align="right" aria-hidden="true">
+  155
+</p>
+
+* * *
+
+Le temps, si détestable au départ qu’il avait fait hésiter le cocher, était plus mauvais encore. La pluie tombait à torrents et un vent furieux secouait à les briser les branches noires des arbres, qui s’entrechoquaient avec des bruits funèbres.
+
+L’obscurité était profonde, épaisse, rendue plus lugubre par le scintillement des réverbères de la gare, qu’on découvrait au loin, vacillants et près de s’éteindre, sous le souffle de la rafale.
+
+Depuis cinq minutes M. Verduret et Prosper couraient au milieu du chemin détrempé et transformé en bourbier, quand tout à coup le caissier s’arrêta.
+
+— Nous y sommes, dit-il, voici l’habitation de Raoul.
+
+Devant la grille de fer d’une maison isolée, un fiacre, celui que M. Verduret et son compagnon avaient vu devant eux, était arrêté.
+
+Renversé sur son siége, enveloppé tant bien que mal dans son manteau, en dépit du vent et de la pluie, le cocher dormait déjà, attendant le retour de la pratique qu’il venait de conduire.
+
+M. Verduret s’approcha de la voiture, et tirant le cocher par son manteau, l’appela:
+
+— Eh! mon brave!
+
+Le cocher s’éveilla en sursaut, rassemblant machinalement ses guides en balbutiant:
+
+— Voilà, bourgeois, voilà!…
+
+Mais quand, à la clarté de ses lanternes, il aperçut ces deux hommes en cet endroit perdu, il s’imagina qu’ils en voulaient peut-être à sa bourse, et, qui sait? à sa vie, et il eut une peur affreuse.
+
+— Je suis pris! fit-il en agitant son fouet: je suis retenu.
+
+— Je le sais bien, imbécile! dit M. Verduret, et je ne veux de toi qu’un renseignement que je te payerai cent sous. Ne viens-tu pas d’amener ici une dame d’un certain âge?
+
+Cette question, cette promesse de cinq francs, loin de rassurer le cocher, changèrent sa frayeur en épouvante.
+
+<p align="right" aria-hidden="true">
+  156
+</p>
+
+* * *
+
+— Je vous ai déjà dit de passer votre chemin, répondit-il: filez, sinon j’appelle au secours.
+
+M. Verduret se recula vivement.
+
+— Éloignons-nous, murmura-t-il à l’oreille de Prosper, cet animal ferait comme il le dit, et une fois l’éveil donné, adieu nos projets. Il s’agit d’entrer autrement que par la grille.
+
+Tous deux, alors, longèrent le mur qui entoure le jardin, cherchant un endroit propice à l’escalade.
+
+Cet endroit n’était pas facile à trouver dans l’obscurité, le mur ayant bien dix ou douze pieds d’élévation. Heureusement, M. Verduret est leste. Le point le plus faible reconnu et choisi, il se recula, prit du champ, et, d’un bon prodigieux de la part d’un homme si gros, il réussit à s’accrocher à l’angle des pierres du sommet. S’aidant ensuite des pieds, à la force du poignet, il s’enleva et fut bientôt à cheval sur le chaperon du mur.
+
+C’était au tour de Prosper de passer, mais, bien que plus jeune que son compagnon, il n’avait pas ses jarrets, et M. Verduret fut obligé de l’aider non-seulement à se hisser, mais encore à redescendre de l’autre côté.
+
+Une fois dans le jardin, M. Verduret s’occupa d’étudier le terrain.
+
+La maison qu’habitait M. de Lagors est construite au milieu d’un jardin très-vaste. Elle est étroite, et relativement haute, ayant deux étages et encore des greniers au-dessus.
+
+Une seule fenêtre, au second étage, était éclairée.
+
+— Vous qui connaissez la maison pour y être venu vingt fois, demanda M. Verduret, sauriez-vous me dire quelle est la pièce où nous voyons de la lumière?
+
+— C’est la chambre à coucher de Raoul.
+
+— Très-bien. Passons à la distribution: qu’y a-t-il au rez-de-chaussée?
+
+— La cuisine, l’office, une salle de billard et la salle à manger.
+
+— Et au premier?
+
+<p align="right" aria-hidden="true">
+  157
+</p>
+
+* * *
+
+— Deux salons séparés par une cloison volante et un cabinet de travail.
+
+— Où se tiennent les domestiques?
+
+— Raoul n’en a pas, à cette heure. Il est servi par des gens du Vésinet, le mari et la femme, qui viennent le matin et se retirent le soir après dîner.
+
+M. Verduret se frotta joyeusement les mains.
+
+— Alors, tout va bien! fit-il: ce sera le diable si nous ne parvenons pas à surprendre quelque chose de ce que disent Raoul et la personne venue de Paris à cette heure et par ce temps… Entrons.
+
+Prosper eut un geste de protestation: la proposition lui semblait vive.
+
+— Y pensez-vous monsieur? fit-il.
+
+— Ah! çà, répondit le gros homme d’un ton goguenard, pourquoi donc croyez-vous que nous sommes venus ici? Espériez-vous une partie de plaisir?
+
+— Nous pouvons être découverts.
+
+— Et après?… Au moindre bruit révélant notre présence vous vous avancez hardiment comme un ami venu pour visiter son ami et qui a trouvé toutes les portes ouvertes.
+
+Le malheur est que la porte, — une porte de chêne plein, — était fermée, et que M. Verduret la secoua vainement.
+
+— Quelle imprudence! murmurait-il d’un ton de dépit, on devrait toujours avoir ses instruments sur soi. Une serrure de rien, qu’on ouvrirait avec un clou, et pas un crochet, pas un morceau de fil de fer!
+
+Reconnaissant l’inutilité de ses efforts, il quitta la porte pour courir successivement à toutes les fenêtres du rez-de-chaussée. Hélas! toutes les persiennes étaient tirées et solidement assujetties.
+
+M. Verduret semblait exaspéré. Il tournait autour de la maison, comme un renard autour d’un poulailler, furieux, cherchant une issue, n’en trouvant pas.
+
+En désespoir de cause, il revint se placer à l’endroit du jardin d’où on découvrait le mieux la fenêtre éclairée.
+
+<p align="right" aria-hidden="true">
+  158
+</p>
+
+* * *
+
+— Si seulement on pouvait voir! s’écria-t-il. Dire que là, là, — et il montrait le poing à la fenêtre — est le mot de l’énigme, et que nous n’en sommes séparés que par les trente ou quarante pieds de ces deux étages!…
+
+Jamais encore Prosper n’avait été si fort surpris par les allures de son étrange compagnon. Il semblait comme chez lui dans ce jardin où il venait de s’introduire par escalade: il allait et venait sans précautions: on eût dit qu’habitué à de pareilles expéditions, il trouvait cette situation toute naturelle, parlant de crocheter la porte d’une maison habitée comme un bourgeois d’ouvrir sa tabatière. Insensible, d’ailleurs, au mauvais temps, au vent, à la pluie qui tombait toujours, à la boue où il pataugeait.
+
+Il s’était rapproché de la maison, et il calculait, il prenait des mesures, comme s’il eût eu l’espérance folle de se hisser le long de cette muraille lisse.
+
+— Je veux voir, répétait-il, je verrai.
+
+Tout à coup un souvenir du temps passé traversa l’esprit de Prosper.
+
+— Mais il y a une échelle, ici, s’écria-t-il.
+
+— Et vous ne me le dites pas!… Où est-elle!
+
+— Au fond du jardin, sous les arbres.
+
+Ils y coururent, et non sans peine la trouvèrent, couchée le long du mur. L’enlever, la porter près de la maison, fut l’affaire d’un instant.
+
+Mais, quand ils l’eurent dressée, ils reconnurent que même en la tenant bien plus verticalement que ne le voulait la prudence, il s’en fallait de six bons pieds qu’elle atteignit la fenêtre éclairée.
+
+— Nous n’arriverons pas! dit Prosper découragé.
+
+— Nous arriverons! s’écria M. Verduret triomphant.
+
+Aussitôt, se plaçant à un mètre de la maison, et lui faisant face, il saisit l’échelle, la souleva avec précaution, et en appuya le dernier échelon sur ses épaules, soutenant les montants aussi haut que possible. L’obstacle était vaincu.
+
+— Maintenant, dit-il à son compagnon, montez.
+
+<p align="right" aria-hidden="true">
+  159
+</p>
+
+* * *
+
+Pour Prosper, la situation était poignante, extrême: il n’hésita pas. L’enthousiasme de la difficulté vaincue, l’espoir du triomphe, lui donnaient une force et une agilité qu’il ne se connaissait pas. Il s’enleva sans secousse, jusqu’aux échelons inférieurs, et se lança sur l’échelle qui tremblait et: vacillait sous son poids.
+
+Mais sa tête avait à peine dépassé l’appui de la fenêtre, qu’il poussa un grand cri, un cri terrible, qui se perdit au milieu des mugissements de la tempête, et qu’il se laissa glisser ou plutôt tomber sur la terre détrempée, en criant:
+
+— Misérable!… Misérable!…
+
+Avec une promptitude et une vigueur extraordinaire, M. Verduret reposa sur le sol la lourde échelle et se précipita vers Prosper, craignant qu’il ne fût dangereusement blessé.
+
+Qu’avez-vous vu? demandait-il, qu’y a-t-il?
+
+Mais déjà Prosper était debout.
+
+Si la chute avait été rude, il était dans une de ces crises où l’âme souveraine domine si absolument la bête, que le corps est insensible à la douleur.
+
+— Il y a, répondit-il, d’une voix rauque et brève, que c’est Madeleine, entendez-vous bien, Madeleine, qui est là, dans cette chambre, seule avec Raoul.
+
+M. Verduret était confondu. Lui, l’homme infaillible, ses déductions l’avaient égaré!
+
+Il savait bien que c’était une femme qui était chez M. de Lagors: mais, d’après ses conjectures, d’après le billet que Gypsy lui avait fait tenir à l’estaminet, il croyait que cette femme était M<sup>me</sup> Fauvel.
+
+— Ne vous seriez-vous pas trompé? demanda-t-il.
+
+— Non, monsieur, non! Je ne saurais, moi, prendre une autre femme pour Madeleine. Ah! vous qui l’avez entendue hier, répondez-moi: devais-je m’attendre à cette trahison infâme? « Elle vous aime, me disiez-vous, elle vous aime! »
+
+M. Verduret ne répondit pas. Étourdi d’abord de son erreur, il en recherchait les causes, et déjà son esprit pénétrant commençait à les discerner.
+
+<p align="right" aria-hidden="true">
+  160
+</p>
+
+* * *
+
+— Le voilà donc, poursuivait Prosper, ce secret surpris par Nina. Madeleine, cette noble et pure Madeleine, en qui j’avais foi comme en ma mère est la maîtresse de ce faussaire, qui a volé jusqu’au nom qu’il porte. Et moi, imbécile d’honnête homme, j’avais fait de ce misérable mon meilleur ami. C’est à lui que je disais mes angoisses et mes espérances… et il était son amant!… Et moi, j’étais sans doute le divertissement de leurs rendez-vous, ils riaient de mon amour ridicule, de ma stupide confiance!…
+
+Il s’interrompit, il succombait à la violence de ses émotions. Le déchirement de l’amour-propre ajoute une souffrance aiguë aux plus atroces douleurs. Cette certitude d’avoir été si indignement trahi et joué, le transportait jusqu’au délire.
+
+— Mais c’est assez d’humiliations comme cela, reprit-il avec un accent de rage inouï: il ne sera pas dit que lâchement j’aurai courbé la tête sous les plus sanglants affronts.
+
+Il allait s’élancer vers la maison: M. Verduret, qui, autant que le lui permettait l’obscurité, surveillait ses mouvements, l’arrêta.
+
+— Que voulez-vous faire?
+
+— Me venger. Ah! je saurai bien briser la porte, maintenant que je ne redoute plus ni le scandale ni le bruit et que je n’ai plus rien à perdre. Je ne cherche plus à me glisser dans la maison furtivement, comme un voleur, j’y veux entrer en maître, en homme qui mortellement offensé vient demander raison de l’offense.
+
+— Vous ne ferez pas cela Prosper.
+
+— Qui donc m’en empêchera!
+
+— Moi!
+
+— Vous?… Non, ne l’espérez pas. Paraître, les confondre, les tuer, mourir après, voilà ce que veux, voilà ce que je vais faire.
+
+Si M. Verduret n’avait pas eu des poignets de fer, Prosper lui échappait. Il y eut entre eux une courte lutte, mais M. Verduret l’emporta.
+
+<p align="right" aria-hidden="true">
+  161
+</p>
+
+* * *
+
+— Si vous faites du bruit, dit-il, si vous donnez l’éveil, ç’en est fait de nos espérances.
+
+— Je n’ai plus d’espérance.
+
+— Raoul, mis sur ses gardes, nous échappe, et vous restez à jamais déshonoré.
+
+— Que m’importe!
+
+— Mais il m’importe à moi, malheureux! à moi qui ai juré de faire éclater votre innocence. À votre âge, on retrouve toujours une maîtresse, on ne retrouve jamais son honneur perdu.
+
+Pour la passion vraie, il n’est pas de circonstances extérieures. M. Verduret et Prosper étaient là, sous la pluie, mouillés jusqu’aux os, les pieds dans la boue, et ils discutaient!
+
+— Je veux me venger, répétait Prosper, avec cette persistance idiote de l’idée fixe, je veux me venger.
+
+— Vengez-vous, soit! s’écria M. Verduret, que la colère gagnait, mais comme un homme alors et non comme un enfant.
+
+— Monsieur!
+
+— Oui, comme un enfant. Que ferez-vous, une fois dans la maison? Avez-vous des armes? Non. Vous vous précipitez donc sur Raoul, vous lutterez donc corps à corps avec lui? Pendant ce temps, Madeleine regagnera sa voiture, et après? Serez-vous seulement le plus fort?
+
+Accablé par le sentiment de son impuissance évidente, Prosper se taisait.
+
+— À quoi bon des armes! poursuivait M. Verduret, il faut être insensé pour tuer un homme qu’on peut envoyer au bagne.
+
+— Que faire, alors?
+
+— Attendre. La vengeance est un fruit délicieux qu’il faut laisser mûrir.
+
+Prosper était ébranlé: M. Verduret le comprit, et il lança son dernier argument, le plus sûr, celui qu’il tenait en réserve.
+
+— D’ailleurs, ajouta-t-il, qui nous assure que M<sup>lle</sup> Madeleine est ici pour son compte? Ne sommes-nous pas
+
+<p align="right" aria-hidden="true">
+  162
+</p>
+
+* * *
+
+arrivés à cette conviction qu’elle se sacrifie? La volonté supérieure qui lui a imposé votre bannissement peut fort bien l’avoir obligée à cette démarche de ce soir.
+
+Toujours la voix qui parlera dans le sens de nos plus chers désirs sera écoutée. Cette supposition, si peu probable en apparence, frappa Prosper.
+
+— En effet, murmura-t-il, qui sait!…
+
+— Je saurais bien, moi, fit M. Verduret, si je pouvais voir.
+
+Prosper resta un moment sans répondre.
+
+— Me promettez-vous, monsieur, prononça-t-il enfin, de me dire votre pensée entière, la vérité, si pénible qu’elle puisse être pour moi?
+
+— Je vous le jure sur ma parole d’honneur.
+
+Aussitôt, avec une force dont il ne se serait pas cru capable quelques instants avant, Prosper enleva l’échelle et en plaça le dernier échelon sur ses épaules, ainsi que son compagnon l’avait fait.
+
+— Montez! dit-il alors.
+
+En une seconde, si légèrement, si adroitement qu’il n’imprima pas à l’échelle une seule secousse, M. Verduret fut à la hauteur de la fenêtre.
+
+Prosper n’avait que trop bien vu. C’était Madeleine qui était là, à cette heure, seule chez Raoul de Lagors.
+
+Elle avait conservé, M. Verduret le remarqua fort bien, ses vêtements du dehors, son chapeau et son par-dessus de drap.
+
+Debout au milieu de la chambre, elle parlait avec une grande animation. Son attitude, ses gestes, sa physionomie, trahissaient une vive indignation difficilement contenue, et un certain mépris mal déguisé.
+
+Raoul, lui, était assis sur une chaise basse, près de la cheminée, tisonnant le feu avec les pincettes. Par moments, il levait les bras en haussant les épaules, ce qui est le mouvement d’un homme résigné à tout entendre, et qui, à tout, répond: « Je n’y puis rien. »
+
+Certes, M. Verduret aurait donné la jolie bague qu’il porte à son maître doigt pour entendre quelque chose,
+
+<p align="right" aria-hidden="true">
+  163
+</p>
+
+* * *
+
+ne fût-ce que dix mots de la conversation: mais, avec le vent qu’il faisait, il n’arrivait pas à son oreille le plus vague murmure, et il n’osait approcher son oreille des vitres, dans la crainte d’être aperçu.
+
+— Évidemment, pensait-il, c’est une dispute, mais il est clair que ce n’est pas une dispute d’amoureux.
+
+Madeleine cependant continuait, et c’est en étudiant la figure de Lagors qu’il distinguait fort bien, éclairée qu’elle était par la lampe placée sur la cheminée, qu’il espérait trouver le sens de cette scène. Par moments, il tressaillait en dépit de son indifférence apparente, ou bien il frappait plus fort dans le foyer avec ses pincettes: sans doute quelque reproche plus direct l’atteignait.
+
+Désespérée, Madeleine en était venue à la prière: elle joignait les mains, elle s’inclinait, elle était presque à genoux.
+
+Il détourna la tête. Il ne répondait, d’ailleurs, que par monosyllabes.
+
+Deux ou trois fois, Madeleine parut vouloir se retirer, toujours elle revenait, comme si, demandant une grâce, elle n’eût pu se résigner à sortir sans l’avoir obtenue.
+
+À la dernière fois, elle trouva sans doute quelque raison décisive, car Raoul tout à coup se leva, ouvrit un petit meuble placé près de la cheminée et en sortit une liasse de papiers qu’il lui tendit.
+
+— Ah ça! pensait M. Verduret, quel diable de jeu jouent-ils? Est-ce une correspondance compromettante qu’est venue réclamer cette jeune demoiselle?
+
+Madeleine, qui avait pris la liasse, ne paraissait pas encore satisfaite. Elle parlait et insistait de nouveau comme pour se faire remettre autre chose. Raoul refusant, elle jeta la liasse sur la table.
+
+Ces papiers intriguaient singulièrement M. Verduret. Ils s’étaient éparpillés sur la table, et il les apercevait assez bien. Il y en avait de plusieurs couleurs, de gris, de verts, de rouges.
+
+— Mais je ne m’abuse pas, pensait M. Verduret, je ne
+
+<p align="right" aria-hidden="true">
+  164
+</p>
+
+* * *
+
+suis pas aveugle, ce sont là des reconnaissances du Mont-de-Piété!
+
+Parmi toutes les feuilles étalées sur la table, Madeleine cherchait. Elle en prit trois, qu’elle plia et mit dans sa poche, et repoussa les autres avec un dédain bien manifeste.
+
+Elle était, cette fois, résolue à se retirer, car sur un mot qu’elle dit, Raoul prit la lampe pour l’éclairer.
+
+M. Verduret n’avait plus rien à voir. Tout en redescendant avec mille précautions, il murmurait:
+
+— Des reconnaissances du Mont-de-Piété!… Quel mystère d’infamie cache donc cette affaire!…
+
+Avant tout, il s’agissait de dissimuler l’échelle.
+
+Raoul en reconduisant Madeleine, pouvait avoir l’idée de faire quelque pas dans le jardin, et, malgré l’obscurité, la découvrir, cette échelle qui, ainsi dressée, se détachait en noir sur la muraille.
+
+En toute hâte, M. Verduret et Prosper la couchèrent à terre, sans souci des arbustes qu’ils brisaient, et allèrent se poster où l’ombre était plus épaisse, dans un endroit d’où ils surveillaient à la fois et la porte de la maison et la grille.
+
+Presqu’au même moment, Raoul et Madeleine parurent sur le perron. Raoul avait posé sa lampe sur la première marche, il offrit la main à la jeune fille, mais elle le repoussa d’un geste empreint d’une insultante hauteur, qui, vu par Prosper, lui versa du baume dans le sang.
+
+Ce mépris ne parut ni émouvoir, ni surprendre Raoul: il répondit simplement par ce geste ironique qui signifie: « Comme vous voudrez! »
+
+Il alla jusqu’à la grille, l’ouvrit et la referma lui-même, puis rentra bien vite, pendant que la voiture de Madeleine, s’éloignait au grand trot.
+
+— Maintenant, monsieur, interrogea Prosper, que le doute torturait, souvenez-vous que vous m’avez promis la vérité, quelle qu’elle soit. Parlez, ne craignez rien, je suis fort.
+
+<p align="right" aria-hidden="true">
+  165
+</p>
+
+* * *
+
+— C’est contre la joie alors qu’il vous faut être fort, mon ami. Avant un mois, vous regretterez amèrement vos flétrissants soupçons de ce soir. Vous rougirez en songeant que vous avez pu croire Madeleine la maîtresse d’un Lagors.
+
+— Cependant, monsieur, les apparences!…
+
+— Eh! c’est des apparences qu’il faut se défier. Pardieu! un soupçon, faux ou juste, est toujours basé sur quelque chose. Mais nous ne pouvons pas nous éterniser ici, votre gredin de Raoul a refermé la grille, je l’ai vu: il faut nous retirer par le chemin de tout à l’heure.
+
+— Mais l’échelle!…
+
+— Qu’elle reste où elle est: comme nous ne saurions effacer nos traces, le tout sera mis sur le compte des voleurs.
+
+De nouveau ils franchirent le mur. Ils n’avaient pas fait cinquante pas sur la route, qu’ils entendirent le bruit d’une grille qui se refermait. Il distinguèrent des pas et bientôt un homme les dépassa qui gagnait la station. Quand il fut à quelque distance:
+
+— C’est Raoul, fit M. Verduret, notre domestique de tantôt, Joseph, nous apprendra qu’il est allé rendre compte à Clameran de la scène. Si seulement ils avaient l’amabilité de parler français…
+
+Il marcha un moment sans mot dire, cherchant à renouer le fil rompu de ses déductions.
+
+— Comment diable, reprit-il tout à coup, ce Lagors qui ne doit chercher que le monde, le plaisir et le jeu, est-il venu choisir une maison isolée au Vésinet?
+
+— Sans doute, répondit Prosper, parce que la maison de campagne de M. Fauvel est à un quart d’heure d’ici au bord de la Seine.
+
+— C’est une explication, cela, pour l’été: mais l’hiver?
+
+— Oh! l’hiver, il a une chambre à l’hôtel du Louvre, et, en toute saison, il dispose d’un appartement à Paris.
+
+— Tout cela n’éclairait pas M. Verduret: il se mit à marcher plus vite.
+
+<p align="right" aria-hidden="true">
+  166
+</p>
+
+* * *
+
+— Pourvu, murmura-t-il, que notre cocher ne soit pas parti. Nous ne pouvons songer à prendre le train qui va passer: nous rencontrerions Raoul à la station.
+
+Bien qu’il se fût écoulé plus d’une heure depuis que Prosper et son compagnon étaient descendus à l’embranchement des deux routes, le fiacre qui les avait amenés stationnait encore devant l’auberge indiquée par M. Verduret.
+
+Le cocher n’avait pu résister au désir d’écorner le billet de cent francs gagné par ses chevaux: il s’était fait servir à dîner: le vin était de son goût, il restait.
+
+La vue de ses bourgeois l’enchanta. Il ne retournerait donc pas à vide à Paris. Seulement, l’état dans lequel il les revoyait, le surprit étrangement.
+
+— Comme vous voilà faits! s’écria-t-il.
+
+Prosper répondit simplement qu’allant visiter un de leurs amis, ils s’étaient égarés et étaient tombés dans une fondrière, — comme s’il y avait des fondrières dans le bois du Vésinet.
+
+— C’est donc cela! fit le cocher.
+
+En apparence, il se contentait de l’explication. Au fond, il n’était pas fort éloigné de croire que ses deux pratiques venaient de tenter, sinon de commettre quelque mauvais coup.
+
+Cette dernière opinion dut être celle de quelques personnes présentes, car il y eut des regards singuliers d’échangés.
+
+Mais M. Verduret coupa court à tous les commentaires.
+
+— Partons-nous? demanda-t-il de sa voix la plus impérieuse.
+
+— Voilà! bourgeois, répondit le cocher: le temps de régler, et je suis à vous. Montez toujours.
+
+La route, au retour, fut mortellement longue et silencieuse.
+
+Prosper avait d’abord essayé de faire causer son étrange compagnon, mais comme il ne répondait que par monosyllabes, il mit son son amour-propre à se taire.
+
+<p align="right" aria-hidden="true">
+  167
+</p>
+
+* * *
+
+Il était irrité de l’empire de plus en plus absolu que cet homme exerçait sur lui.
+
+Les circonstances physiques augmentaient encore son ennui. Il était transi, glacé jusqu’à la moelle des os, et il se sentait gagné par un irrésistible engourdissement qui enveloppait sa pensée d’un brouillard opaque.
+
+C’est que s’il n’est pas de limites à la puissance de l’imagination, les forces physiques ont des bornes. Après l’effort vient la réaction.
+
+Enfoncé dans un coin, les pieds sur la banquette de devant, M. Verduret semblait dormir, et cependant jamais il n’avait été plus éveillé.
+
+Il était aussi mécontent que possible. Cette expédition, qui devait, dans sa pensée, fixer ses hésitations, aboutissait à une complication.
+
+Tous les fils qu’il avait cru tenir se brisaient dans sa main.
+
+Certes, pour lui, les faits restaient les mêmes, mais les circonstances changeaient. Il ne découvrait plus quel mobile commun, quelle complicité morale ou matérielle, quelles influences poussaient à agir dans le même sens les quatre acteurs de son drame, M<sup>me</sup> Fauvel et Madeleine, Raoul et Clameran.
+
+Et il cherchait en son esprit fertile, encyclopédie de ruses, quelque combinaison qui pût faire jaillir la lumière.
+
+Minuit sonnait quand le fiacre arriva devant l’hôtel du *Grand-Archange*, et alors seulement M. Verduret, arraché à ses méditations, s’aperçut qu’il n’avait pas dîné.
+
+Par bonheur, M<sup>me</sup> Alexandre attendait, et, en un clin d’œil, un souper fut improvisé. C’était plus que des prévenances, plus que du respect qu’elle avait pour son hôte. Pendant qu’il mangeait, Prosper le remarqua fort bien, elle considérait son compagnon avec une sorte d’admiration ébahie.
+
+Ayant fini de manger, M. Verduret se leva.
+
+— Vous ne me verrez pas demain dans la journée,
+
+<p align="right" aria-hidden="true">
+  168
+</p>
+
+* * *
+
+dit-il à Prosper: mais le soir, vers cette heure, je serai ici. Peut-être aurai-je eu la chance de trouver ce que je cherche au bal de MM. Jandidier.
+
+Prosper faillit tomber de son haut. Quoi! M. Verduret songeait à se présenter à une fête donnée par des financiers des plus opulents de la capitale! C’était donc pour cela qu’il l’avait envoyé chez le costumier.
+
+— Vous êtes donc invité? demanda-t-il.
+
+Un fin sourire passa dans les yeux si expressifs de M. Verduret.
+
+— Pas encore, répondit-il, mais je le serai.
+
+Ô contradiction de l’esprit humain! Les plus poignantes préoccupations tenaillaient la pensée de Prosper: et maintenant, en regardant tristement sa chambre, songeant aux projets de M. Verduret, il murmurait:
+
+— Ah! il est heureux, lui, demain, il verra Madeleine, plus belle que jamais, avec son costume de fille d’honneur.
+
+<h2 id="XI" align="center" style="font-weight: 100; border: none; font-size: 2em;">
+  XI
+</h2>
+
+C’est vers le milieu de la rue Saint-Lazare que s’élèvent les hôtels jumeaux de MM. Jandidier, deux financiers célèbres qui, dépouillés du prestige de leurs millions, seraient encore des hommes remarquables. — Que n’en peut-on dire autant de tous!
+
+Ces deux hôtels, qui lors de leur achèvement, il y a quelques années, firent pousser à la presse des cris d’admiration, sont absolument distincts l’un de l’autre, mais disposés habilement de façon à n’en faire qu’un au besoin.
+
+Quand MM. Jandidier donnent une fête, ils font enle-
+
+<p align="right" aria-hidden="true">
+  169
 </p>
 
 * * *
