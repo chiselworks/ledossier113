@@ -5411,3 +5411,789 @@ Quand MM. Jandidier donnent une fête, ils font enle-
 </p>
 
 * * *
+
+ver les épaisses cloisons mobiles, et leurs salons sont alors des plus beaux qu’il y ait à Paris.
+
+Magnificence princière, merveilleuse entente du comfort, hospitalité pleine de prévenances, tout contribue à rendre ces fêtes des plus courues et des plus recherchées qu’il soit.
+
+C’est dire que, le samedi, la rue Saint-Lazare était encombrée de voitures prenant la file en attendant leur tour.
+
+À dix heures, on dansait déjà dans deux salons.
+
+C’était un bal travesti. Presque tous les costumes étaient d’une grande richesse, beaucoup du meilleur goût, quelques-uns vraiment originaux.
+
+Parmi ces derniers, on remarquait surtout un paillasse, oh! mais un vrai, ayant l’admirable physionomie de l’emploi, œil insolent, bouche gourmande et gouailleuse, pommettes allumées, et une barbe si rouge, qu’elle semblait flamber au feu des lustres.
+
+Le costume était exact comme la tradition: les bottes étaient à revers, le chapeau était suffisamment bosselé, la dentelle du jabot s’effiloquait.
+
+Il tenait de la main gauche la hampe d’une sorte de bannière de toile sur laquelle six ou huit tableaux étaient figurés, grossièrement peints comme les tableaux des baraques foraines. De la main droite il agitait une petite badine, dont il frappait sa toile, par moments, à la façon des saltimbanques débitant leur boniment.
+
+On entourait ce paillasse, on attendait de lui quelques quolibets spirituels, mais lui, obstinément, se tenait près de la porte d’entrée.
+
+Ce n’est guère que sur les dix heures et demie qu’il quitta son poste.
+
+M. et M<sup>me</sup> Fauvel, suivis de leur nièce, Madeleine, venaient d’entrer.
+
+Un groupe compacte se forma presque aussitôt près de la porte.
+
+Depuis dix jours, l’affaire du banquier de la rue de Provence avait été l’aliment le plus vif de toutes les con-
+
+<p align="right" aria-hidden="true">
+  170
+</p>
+
+* * *
+
+versations, et amis et ennemis étaient bien aises de l’approcher; les uns, pour l’assurer de leur sympathie, les autres, pour lui offrir ces équivoques compliments de condoléance, qui sont ce qu’il y a au monde de plus blessant et de plus irritant,
+
+Enrôlé dans le bataillon des hommes sérieux, M. Fauvel ne s’était pas travesti; il avait simplement jeté sur ses épaules un court manteau de soie.
+
+À son bras, M<sup>me</sup> Fauvel, née Valentine de La Verberie, s’inclinait et saluait, avec la plus gracieuse affabilité.
+
+Sa beauté avait été remarquable autrefois, et ce soir, la magie du costume y prêtant, l’illusion des lumières aidant, elle avait retrouvé la fraîcheur et l’éclat de la jeunesse. Jamais, on ne lui eût donné les quarante-huit ans qu’elle venait d’avoir.
+
+Elle avait choisi une toilette de cour des dernières années du règne de Louis XIV, magnifique et sévère, toute de satin broché et de velours, sans un diamant, sans un bijou.
+
+Et elle le portait avec une noblesse aisée, ayant grand air sous sa poudre, comme il convient — disaient quelques âmes charitables — à une La Verberie qui a eu le tort d’épouser un homme d’argent.
+
+Mais c’est à Madeleine qu’allaient tous les regards. Elle semblait vraiment une reine sous ce costume de fille d’honneur, inventé comme à plaisir pour faire valoir les richesses de sa taille.
+
+Aux tièdes parfums des salons, sous le rayonnement des lustres, sa beauté s’épanouissait. Jamais ses cheveux n’avaient été si noirs, jamais son teint n’avait paru si blanc, jamais ses grands yeux n’avaient eu ces lueurs.
+
+Une fois entrée, Madeleine prit le bras de sa tante, pendant que M. Fauvel se perdait dans la foule, cherchant à gagner un des salons de jeu, refuges des hommes graves.
+
+Le bal était alors à l’apogée de ses splendeurs.
+
+Deux orchestres, sous la baguette de Strauss, et d’un
+
+<p align="right" aria-hidden="true">
+  171
+</p>
+
+* * *
+
+de ses lieutenants, remplissaient les deux hôtels de leurs fanfares. La foule bigarrée se mêlait et tourbillonnait, et c’était un merveilleux fouillis d’étoffes d’or et de satins, de velours et de dentelles.
+
+Les diamants étincelaient sur les têtes et sur les poitrines, les joues les plus pâles rougissaient, les yeux brillaient, et les épaules des femmes resplendissaient, plus blanches, comme les neiges aux premiers rayons du soleil d’avril.
+
+Oublié, lui et sa bannière, le paillasse s’était réfugié dans l’embrasure d’une fenêtre, et il s’y tenait debout, le coude appuyé à la poignée ciselée de l’espagnolette.
+
+Il semblait quelque peu ému de tant de magnificences, et quelque chose de ces enivrements lui montait à la tête. Pourtant il ne perdait pas de vue un couple qui dansait à une faible distance de lui.
+
+C’était Madeleine, s’appuyant sur le bras d’un doge plus doré qu’un sequin; et ce doge n’était autre que le marquis de Clameran. Il paraissait radieux, rajeuni, ses empressements avaient des apparences de triomphe. À un repos de quadrille, il se penchait vers sa danseuse et lui parlait avec une admiration contenue. Elle semblait l’écouter, sinon avec plaisir, du moins sans colère, hochant la tête par moments et d’autres fois souriant.
+
+— Évidemment murmurait le paillasse, ce noble gredin fait sa cour à la nièce du banquier; donc j’avais raison hier. Mais, d’un autre côté, comment M<sup>lle</sup> Madeleine se résigne-t-elle à entendre d’un air si gracieux ses fadeurs et ses déclarations? Heureusement Prosper n’est pas ici…
+
+Il s’interrompit. Devant lui s’arrêtait un homme âgé déjà, portant avec une distinction suprême le manteau vénitien.
+
+— Vous savez, monsieur… Verduret, dit-il, moitié sérieux, moitié railleur, ce que vous m’avez promis?
+
+Le paillasse s’inclina respectueusement, profondément, mais sans apparence de bassesse ni d’humilité:
+
+<p align="right" aria-hidden="true">
+  172
+</p>
+
+* * *
+
+— Je me souviens! répondit-il.
+
+— Pas d’imprudence, surtout.
+
+— Monsieur le comte peut être tranquille, il a ma parole.
+
+— C’est bien; monsieur, je sais ce qu’elle vaut.
+
+Le comte s’éloigna: mais pendant ce court colloque le quadrille finissait, et le paillasse n’aperçut plus ni M. de Clameran ni Madeleine.
+
+— Je les retrouverai auprès de M<sup>me</sup> Fauvel, pensa-t-il.
+
+Et aussitôt, il se lança dans la foule, à la recherche de la femme du banquier.
+
+Incommodée par la chaleur qui devenait suffoquante, M<sup>me</sup> Fauvel était venue chercher un peu de fraîcheur dans la grande galerie des hôtels Jandidier, tranformée pour la nuit, grâce à ce talisman qui s’appelle l’or, en un féerique jardin, plein d’orangers, de lauriers roses en fleur et de lilas blancs dont les grappes délicates s’inclinaient déjà.
+
+Le paillasse l’aperçut, assise près d’un bosquet, non loin de la porte d’un des salons de jeu. À droite était Madeleine; à sa gauche se tenait Raoul de Lagors costumé en mignon de Henri III.
+
+— Il faut avouer, pensait le paillasse, tout en cherchant un poste d’observation, qu’on n’est pas plus beau que ce jeune bandit.
+
+Madeleine, maintenant, était triste. Elle avait arraché un camélia à l’arbuste voisin, et elle l’effeuillait machinalement, le regard perdu dans le vide.
+
+Raoul et M<sup>me</sup> Fauvel, penchés l’un vers l’autre; causaient. Leurs visages paraissaient tranquilles, mais les gestes de l’un, les tressaillements de l’autre, trahissaient clairement des préoccupations supérieures et une conversation des plus graves.
+
+Dans le salon de jeu, on apercevait le doge, M. de Clameran, placé de façon à voir M<sup>me</sup> Fauvel et Madeleine sans être vu.
+
+— C’est la scène d’hier qui se continue, pensa le pail-
+
+<p align="right" aria-hidden="true">
+  173
+</p>
+
+* * *
+
+lasse, si je pouvais surprendre quelques mots! Si j’étais derrière ces camélias, je suis sûr que j’entendrais.
+
+Il manœuvra aussitôt en conséquence, mais s’approcher n’était pas aisé, il lui fallait tourner des groupes. Quand il arriva à la place désirée, Madeleine se levait et prenait le bras d’un Persan constellé de pierreries.
+
+Au même moment, Raoul se leva et passa dans le salon de jeu où il dit quelques mots à l’oreille de Clameran.
+
+— Et voilà!… se dit le paillasse, ces deux misérables tiennent ces deux pauvres femmes, et c’est en vain qu’elles se débattent entre leurs serres. Mais comment les tiennent-ils?
+
+Il réfléchissait quand tout à coup se fit un grand mouvement dans la galerie. C’est qu’on annonçait un menuet merveilleux dans le grand salon; puis la comtesse de Commarin venait d’arriver en Aurore; puis encore, il fallait aller admirer les émeraudes de la princesse Korasoff, les plus belles de l’univers.
+
+En un instant la galerie fut presque vide. Il n’y restait plus que quelques pauvres isolés, des maris grincheux dont les femmes dansaient, et quelques jeunes hommes timides et gênés dans leurs costumes.
+
+Le paillasse pensa que l’heure favorable à ses desseins était venue.
+
+Brusquement il quitta sa place, brandissant sa bannière, frappant avec sa badine sur la toile, toussant avec affectation, en homme qui va parler. Il avait traversé la galerie et s’était placé entre le fauteuil occupé par M<sup>me</sup> Fauvel et la porte du salon.
+
+Aussitôt, accoururent autour de lui, faisant cercle, tous les invités restés dans la galerie.
+
+Déjà il s’était posé dans la fière attitude de la tradition, le chapeau prodigieusement incliné sur l’oreille, le corps penché du même côté que le chapeau.
+
+C’est avec une incroyable volubilité et du ton le plus emphatiquement bouffon qu’il commença:
+
+— Mesdames et messieurs… Ce matin même je solli-
+
+<p align="right" aria-hidden="true">
+  174
+</p>
+
+* * *
+
+citais une autorisation de l’autorité — il saluait — de cette ville. Eh! pourquoi? Afin, messieurs, d’avoir l’honneur de vous soumettre un spectacle qui a déjà conquis les suffrages des cinq parties du monde et de plusieurs autres académies. C’est dans l’intérieur de cette loge, mesdames, que va commencer la représentation d’un drame inouï joué pour la première fois à Pékin, et traduit par nos plus fameux auteurs. Déjà, messieurs, on peut prendre ses places; les quinquets sont allumés et les acteurs s’habillent.
+
+Il s’interrompit, et, avec une perfection humiliante pour les instruments de cuivre et les grosses caisses, il imita les ritournelles déchirantes des musiques de saltimbanques.
+
+— Mais, mesdames et messieurs, reprit-il, vous allez me dire: Si c’est dans la loge qu’on joue la pièce, que fais-tu ici? Ce que j’y fais, messieurs, j’y suis pour vous donner un avant-goût des agitations, sensations, émotions, palpitations et autres distractions que vous pouvez vous payer moyennant le faible déboursé de cinquante centimes, dix sous!… Vous voyez ce superbe tableau? Eh bien, il représente les huit scènes les plus terribles du drame. Ah! je le vois, vous frémissez. Cependant, ce n’est rien. Ce magnifique tableau ne nous donne pas plus l’idée exacte de la représentation qu’une goutte d’eau ne donne idée de la mer, ou une étincelle l’idée du soleil. Mon tableau, messieurs, c’est la bagatelle de la porte, comme qui dirait la fumée qu’on aspire aux soupiraux des restaurants…
+
+— Est-ce que vous connaissez ce paillasse? demandait un énorme Turc à un mélancolique Polichinelle.
+
+— Non, mais il imite supérieurement la trompette.
+
+— Oh! supérieurement. Mais où veut-il en venir?
+
+Ce qu’il voulait, le paillasse, c’était avant tout et surtout attirer l’attention de M<sup>me</sup> Fauvel, qui, depuis que Raoul et Madeleine s’étaient éloignés, s’était abandonnée à une rêverie profonde et sans doute douloureuse.
+
+Il réussit.
+
+<p align="right" aria-hidden="true">
+  175
+</p>
+
+* * *
+
+Les éclats de cette voix stridente ramenèrent la femme du banquier au sentiment de la réalité; elle tressaillit et regarda vivement autour d’elle, comme si on l’eût brusquement éveillée, puis elle se pencha du côté du paillasse.
+
+Lui, cependant continuait:
+
+— Donc, messieurs, nous sommes en Chine. Le premier des huit tableaux de ma toile, ici, en haut, à gauche — il le montrait du bout de sa badine — vous représente le célèbre mandarin Li-Fô, au sein de sa famille. Cette jolie jeune dame qui s’appuie sur son épaule n’est autre que son épouse, et les enfants qui se roulent sur le tapis sont le fruit de la plus fortunée des unions. Ne respirez-vous pas, messieurs, le parfum de satisfaction et d’honnêteté qui s’exhale de cette superbe peinture? C’est que M<sup>me</sup> Li-Fô est la plus vertueuse des femmes, adorant son mari et idolâtrant ses enfants. Étant vertueuse, elle est heureuse, car, ainsi que le dit si bien Confucius, la vertu a bien plus d’agréments que le vice!…
+
+Insensiblement, M<sup>me</sup> Fauvel s’était rapprochée, même elle avait quitté son fauteuil pour venir en occuper un autre, tout près du paillasse.
+
+— Voyez-vous, demandait à son voisin le mélancolique polichinelle, ce qu’il dit être sur sa toile?
+
+— Ma foi! non; et vous?
+
+Le fait est que la toile, furieusement enluminée, ne représentait guère plus cela que n’importe qu'elle autre chose.
+
+Le paillasse, cependant, après avoir imité un roulement de tambour, reprenait en accélérant encore son débit:
+
+— Tableau no 2! ! Cette vieille dame assise devant une armoire à glace et qui de désespoir s’arrache les cheveux, particulièrement les blancs, la reconnaissez-vous? Non. Eh bien! c’est cependant la belle Mandarine du premier tableau. Je vois des pleurs dans vos yeux, mesdames et messieurs. Ah! pleurez, car si elle n’est plus belle elle n’est plus vertueuse, et son bonheur a disparu comme
+
+<p align="right" aria-hidden="true">
+  176
+</p>
+
+* * *
+
+sa vertu. Ah! c’est une lamentable histoire! Un jour, on ne sait où, dans une rue de Pékin, elle a rencontré un jeune bandit beau comme un ange, et elle l’aime, la malheureuse, elle l’aime!…
+
+C’est de la voix la plus tragique, et avec une physionomie à l’avenant, que le paillasse prononça ces derniers mots.
+
+Pendant cette tirade, il avait opéré une demi-conversion. Il se trouvait maintenant presqu’en face de la femme du banquier, et ne perdait pas un des mouvements de son visage.
+
+— Vous êtes surpris, messieurs, poursuivait-il, je ne le suis pas. Le grand Bilboquet, mon maître, nous l’a révélé, le cœur n’a pas d’âge, et c’est sur les ruines que fleurissent les plus vigoureuses ravenelles. La malheuheureuse!… elle a cinquante ans et elle aime un adolescent! De là cette scène navrante et épilatoire qui est un grand enseignement!
+
+— Vrai! murmurait un cuisinier de satin blanc qui avait passé la soirée à débiter, sans succès, quantité de *menus*; vrai, je le supposais plus amusant.
+
+— Mais c’est dans l’intérieur de la loge, disait le paillasse, qu’il faut voir les surprenants effets des fautes de la mandarine. Par moments, une lueur de raison éclaire son cerveau malade, et les manifestations de ses angoisses attendrissent les plus impitoyables. Entrez, et pour dix sous vous entendrez des sanglots tels que l’Odéon n’en ouït jamais en ses beaux jours. C’est qu’elle comprend l’inanité, la folie, le ridicule de sa passion, elle s’avoue qu’elle s’acharne à la poursuite d’un fantôme, elle sait trop que lui, radieux de jeunesse, ne peut l’aimer, elle, déjà vieille, cherchant en vain à retenir les restes d’une beauté flétrie. Elle sent que si parfois il murmure à son oreille d’amoureuses paroles, il ment. Elle devine qu’un jour ou l’autre son manteau lui restera dans la main.
+
+Tout en débitant avec une volubilité extrême ce boniment adressé en apparence au groupe qui l’entourait, le paillasse ne quittait pas des yeux la femme du banquier.
+
+<p align="right" aria-hidden="true">
+  177
+</p>
+
+* * *
+
+Mais rien de ce qu’il avait dit n’avait semblé l’atteindre.
+
+À demi-renversée sur son fauteuil, elle restait calme, son œil gardait sa clarté, même elle souriait doucement.
+
+— Ah! çà, pensait le paillasse un peu inquiet, aurais-je fait fausse route!
+
+Si préoccupé qu’il fût, il aperçut cependant un nouvel auditeur, le doge M. de Clameran, qui, lui aussi, venait faire cercle.
+
+— Au troisième tableau, continuait-il en faisant ronfler les *r*, la vieille mandarine a donné congé à ses remords, qui sont des locataires gênants. Elle s’est dit qu’à défaut d’amour, l’intérêt fixerait près d’elle le trop séduisant jouvenceau. C’est dans ce but que, l’ayant affublé d’une fausse dignité, elle le présente chez les principaux mandarins de la capitale du Fils du Ciel; puis, comme il faut qu’un joli garçon fasse figure, elle se dépouille à son profit de tout ce qu’elle possède: bracelets, bagues, colliers, perles et diamants; tout y passe. C’est aux maisons de prêt de la rue Tien-Tsi que le monstre porte tous ces joyaux, et il refuse, par-dessus le marché, d’en rendre les reconnaissances.
+
+Le paillasse avait lieu d’en être satisfait.
+
+Depuis un instant déjà, M<sup>me</sup> Fauvel donnait des signes, bien manifestes pour lui, de malaise et d’agitation.
+
+Une fois, elle avait essayé de se lever, de s’éloigner; mais ses forces la trahissant, elle restait clouée à son fauteuil, forcée d’entendre.
+
+— Cependant, mesdames et messieurs, continuait le paillasse, les plus riches écrins s’épuisent. Un jour vint où la mandarine n’eut plus rien à donner. C’est alors que le jeune bandit conçut le fallacieux projet de s’emparer du bouton de jaspe du mandarin Li-Fô, ce splendide bijou d’une valeur incalculable, insigne de sa dignité, déposé dans une cachette de granit, gardée nuit et jour par trois soldats. Ah! la mandarine résista longtemps. Elle savait qu’on accuserait certainement les soldats innocents
+
+<p align="right" aria-hidden="true">
+  178
+</p>
+
+* * *
+
+et qu’ils seraient mis en croix, comme c’est la mode à Pékin, et cette pensée la gênait. Mais l’autre parla d’une voix si tendre, que, ma foi! vous comprenez… le bouton de jaspe fut enlevé. Le quatrième tableau vous représente les deux coupables descendant à pas de loup l’escalier dérobé; voyez leurs transes, voyez…
+
+Il s’interrompit. Trois ou quatre de ses auditeurs avaient vu que M<sup>me</sup> Fauvel était près de se trouver mal, et ils s’empressaient pour lui porter secours.
+
+D’ailleurs on lui serrait énergiquement le bras.
+
+Il se retourna vivement et se trouva en face de M. de Clameran et de Raoul de Lagors, aussi pâles, aussi menaçants l’un que l’autre.
+
+— Vous désirez, messieurs?… demanda-t-il de son air le plus gracieux.
+
+— Vous parler, répondirent-ils ensemble.
+
+— À vos ordres.
+
+Et il les suivit de l’autre côté de la galerie, dans l’embrasure d’une porte-fenêtre donnant sur un balcon.
+
+Là, nul ne devait songer à les observer, et personne ne les observait, en effet, sauf ce personnage à manteau vénitien que le paillasse avait salué si bas en l’appelant: « Monsieur le comte. »
+
+D’ailleurs le menuet venait de finir, les orchestres prenaient une demi-heure de repos, la foule affluait dans la galerie, devenue en un moment trop étroite.
+
+Même le soudain malaise de M<sup>me</sup> Fauvel avait passé absolument inaperçu; ceux qui l’avaient remarqué, le voyant aussitôt dissipé, l’avaient mis sur le compte de la chaleur. M. Fauvel avait bien été prévenu; il était accouru, mais ayant trouvé sa femme causant tranquillement avec Madeleine, il était allé reprendre sa partie.
+
+Moins maître de soi que Raoul, M. de Clameran avait pris la parole.
+
+— Tout d’abord, monsieur, commença-t-il d’un ton rude, j’aime à savoir à qui je m’adresse.
+
+Mais le paillasse s’était bien promis de s’obstiner à
+
+<p align="right" aria-hidden="true">
+  179
+</p>
+
+* * *
+
+croire à une plaisanterie de bal travesti, tant qu’on ne lui mettrait pas les points sur les *i*.
+
+C’est dans l’esprit et le ton de son costume qu’il répondit:
+
+— Ce sont mes papiers que vous me demandez, seigneur doge, et vous, mon mignon? J’en ai, des papiers, mais ils sont entre les mains des autorités de cette cité, avec mes noms, prénoms, âge, profession, domicile, signes particuliers.
+
+D’un geste furibond, M. de Clameran l’arrêta.
+
+— Vous venez, dit-il, de vous permettre la plus infâme des perfidies!
+
+— Moi? seigneur doge!
+
+— Vous!… Qu’est-ce que cette abominable histoire que vous débitiez?
+
+— Abominable!… cela vous plaît à dire, mais moi qui l’ai composée!…
+
+— Assez, monsieur, assez, ayez au moins le courage de vos actes, et avouez que ce n’est qu’une longue et misérable insinuation à l’adresse de M<sup>me</sup> Fauvel.
+
+Le paillasse, la tête renversée, comme s’il eût demandé des idées au plafond, écoutait, la bouche béante, de l’air ahuri d’un homme qui, moralement tombe des nues.
+
+Qui l’eût connu, il est vrai, eût vu, dans son œil noir, pétiller la satisfaction d’une diabolique malice.
+
+— Par exemple! disait-il, semblant bien moins répondre que se parler à soi-même, par exemple! voilà qui est fort, Où se trouve dans mon drame de la mandarine Li-Fô une allusion à M<sup>me</sup> Fauvel que je ne connais ni d’Ève ni d’Adam? J’ai beau chercher, fouiller, scruter, d’honneur! je ne vois pas. À moins que… mais non, c’est impossible.
+
+— Prétendrez-vous donc, interrompit M. de Clameran, soutiendrez-vous donc que vous ignorez le malheur qui vient de frapper M. Fauvel?
+
+Mais le paillasse était bien décidé à laisser préciser les faits.
+
+<p align="right" aria-hidden="true">
+  180
+</p>
+
+* * *
+
+— Un malheur? interrogea-t-il.
+
+— Je veux parler, monsieur du vol dont M. Fauvel a été victime, et qui a fait assez de bruit, ce me semble.
+
+— Ah! oui, je sais. Son caissier a décampé en lui emportant 350,000 fr. Pardieu! l’accident est vulgaire et je dirai presque quotidien. Quant à découvrir entre ce vol et mon récit le moindre rapport, c’est une autre affaire…
+
+M. de Clameran tardait à répondre. Un violent coup de coude de Lagors l’avait calmé, comme par enchantement.
+
+Devenu plus froid que marbre, il toisait le paillasse d’un regard soupçonneux et paraissait regretter amèrement les paroles significatives arrachées à son emportement.
+
+— Soit! fit-il de ce ton hautain, qui lui était familier, soit, j’ai pu me tromper; après vos explications, je veux bien l’admettre et le croire.
+
+Mais voilà que le paillasse, si niaisement humble l’instant d’avant, sur ce mot: Explications, se rebiffa. Il se campa fièrement, le poing sur la hanche, exagérant l’attitude du défi.
+
+— Je ne vous ai donné, je n’avais à vous donner aucune explication.
+
+— Monsieur!…
+
+— Laissez-moi finir, s’il vous plaît. Si, sans le vouloir, j’ai blessé en quelque chose la femme d’un homme que j’estime, c’est à lui, ce me semble, seul juge et arbitre de ce qui intéresse son honneur, de me le faire savoir. Il n’est plus d’un âge, me direz-vous, à venir demander raison d’une offense, c’est possible; mais il a des fils, et l’un d’eux est ici, je viens de le voir. Vous m’avez demandé qui je suis, à mon tour je vous dirai: Qui êtes-vous, vous, qui de votre autorité privée, vous constituez le champion de M<sup>me</sup> Fauvel? Êtes-vous son parent, son ami, son allié? De quel droit l’insultez-vous en prétendant découvrir une allusion où il n’y a qu’une histoire inventée à plaisir?
+
+<p align="right" aria-hidden="true">
+  181
+</p>
+
+* * *
+
+Il n’y avait rien à dire à cette réponse si ferme et si logique. M. de Clameran chercha un biais.
+
+— Je suis l’ami de M. Fauvel, dit-il, et, à ce titre, j’ai le droit d’être jaloux de sa considération comme de la mienne propre. Et si cette raison ne vous suffit pas, sachez qu’avant peu sa famille sera la mienne.
+
+— Ah!
+
+— C’est ainsi, monsieur, et avant huit jours mon mariage avec M<sup>lle</sup> Madeleine sera officiellement annoncé.
+
+La nouvelle était à ce point imprévue, elle était si bizarre, qu’un moment le paillasse resta absolument décontenancé et pour tout de bon, cette fois.
+
+Mais ce fut l’affaire d’une seconde. Il s’inclina bien bas avec un sourire juste assez ironique pour qu’on ne pût le relever, en disant:
+
+— Recevez toutes mes félicitations, monsieur. Outre qu’elle est, ce soir, la reine du bal, M<sup>lle</sup> Madeleine a, dit-on, un demi-million de dot.
+
+C’est avec une impatience visible, et en jetant de tous côtés des regards anxieux, que Raoul de Lagors avait écouté cette discussion.
+
+— En voici trop, fit-il, d’un ton bref et dédaigneux; je ne vous dirai, moi, qu’une chose, maître paillasse, vous avez la langue trop longue.
+
+— Peut-être, mon joli mignon, peut-être! Mais j’ai le bras plus long encore.
+
+Clameran, lui aussi, avait hâte d’en finir.
+
+— Assez, ajouta-t-il en frappant du pied, on n’a pas d’explication avec un homme qui cache sa personnalité sous les oripeaux de son costume.
+
+— Libre à vous, seigneur doge, d’aller demander qui je suis au maître de la maison… si vous l’osez.
+
+— Vous êtes, s’écria Clameran, vous êtes…
+
+Un geste rapide de Raoul arrêta sur les lèvres du noble maître de forges une injure qui allait peut-être amener des voies de fait, et à tout le moins une provocation, du scandale, du bruit.
+
+Le paillasse attendit un moment, un sourire gouailleur
+
+<p align="right" aria-hidden="true">
+  182
+</p>
+
+* * *
+
+aux lèvres, et l’injure ne venant pas, il chercha des yeux les yeux de M. de Clameran et lentement prononça:
+
+— Je suis, monsieur, le meilleur ami qu’ait eu de son vivant votre frère Gaston. J’étais son conseiller, j’ai été le confident de ses dernières espérances.
+
+Ces simples mots tombèrent comme autant de coups de massue sur la tête de Clameran.
+
+Il pâlit affreusement et recula d’un pas, les mains en avant, comme si là, au milieu de ce bal, il eût vu devant lui se dresser un spectre.
+
+Il voulut répondre, protester, dire quelque chose, l’épouvante glaça les mots dans sa gorge.
+
+— Allons, viens, lui dit Lagors, qui avait gardé son sang-froid.
+
+Et il l’entraîna en le soutenant, car il chancelait comme un homme ivre, il se tenait aux murs.
+
+— Oh! fit le paillasse, sur trois tons différents, oh!! oh!!!
+
+C’est qu’il était presque aussi étourdi que le maître de forges, et il restait là, dans son embrasure, planté sur ses jambes.
+
+Cette phrase, mystérieusement menaçante, c’est à tout hasard qu’il avait prononcée, sans but, sans intention arrêtée, uniquement pour ne pas rester court, guidé à son insu par cet instinct merveilleux du policier, qui est sa force, comme le flair du limier.
+
+— Qu’est-ce que cela signifie? murmurait-il. Pourquoi l’effroi de ce misérable? Quel souvenir terrible ai-je remué dans son âme de boue? Qu’on vienne donc encore vanter la pénétration de mon esprit, la subtilité de mes combinaisons! Il est un maître qui, sans peine, nous dame le pion à tous, qui d’un brusque caprice dérange toutes nos chimères, ce maître, c’est le hasard.
+
+Il était à cent lieues de la situation présente, de la galerie, du bal de MM. Jandidier. Un léger coup, frappé sur son épaule par le personnage au manteau vénitien, le rappela brusquement à la réalité.
+
+<p align="right" aria-hidden="true">
+  183
+</p>
+
+* * *
+
+— Êtes-vous content, M. Verduret? demanda-t-il.
+
+— Oui et non, monsieur le comte. Non, parce que je n’ai pas atteint complètement le but que je me proposais quand je vous ai prié de me faire admettre ici; oui, parce que nos deux coquins se sont livrés de telle façon que le doute n’est plus possible.
+
+— Et vous vous plaignez?…
+
+— Je ne me plains pas, monsieur le comte; je bénis au contraire le hasard, je devrais dire la Providence, qui vient de me révéler l’existence d’un secret dont je ne me doutais pas.
+
+Cinq ou six invités qui, ayant aperçu le comte, s’approchaient de lui, interrompirent cette conversation. Le comte s’éloigna, mais non sans adresser au paillasse un salut plus amical encore que protecteur.
+
+Lui, aussitôt, déposant sa bannière, se lança dans la foule devenue si pressée, qu’on ne circulait qu’avec les plus grandes difficultés. Il cherchait M<sup>me</sup> Fauvel. Elle avait quitté la galerie, et il la trouva établie sur une banquette du grand salon, causant avec Madeleine. Elles étaient, l’une et l’autre, fort animées.
+
+— Bon! pensa le paillasse, elles s’entretiennent de la scène; mais que sont donc devenus Lagors et Clameran?
+
+Il ne tarda pas à les apercevoir. Ils allaient et venaient, traversant les groupes, saluant, adressant la parole à une foule de personnes.
+
+— Je parierais, murmura le paillasse, qu’il est question de moi. Ces honorables messieurs cherchent à savoir qui je suis. Cherchez, mes bons amis, cherchez…
+
+Bientôt ils y renoncèrent. Ils étaient si préoccupés, ils éprouvaient un tel besoin de se trouver seuls pour réfléchir et délibérer, que sans attendre le souper, ils allèrent prendre congé de M<sup>me</sup> Fauvel et de sa nièce, annonçant qu’ils se retiraient.
+
+Ils disaient vrai. Le paillasse les vit gagner le vestiaire, prendre leurs manteaux, descendre le grand escalier et disparaître sous le porche.
+
+<p align="right" aria-hidden="true">
+  184
+</p>
+
+* * *
+
+— Tout est dit, pour ce soir, murmura-t-il, je n’ai plus rien à faire ici.
+
+Et à son tour, il sortit, après avoir passé un immense pardessus qui cachait presque entièrement son costume.
+
+Il y avait à la porte bien des voitures libres, mais le temps était beau, bien que froid, le pavé était sec, le paillasse décida qu’il rentrerait à pied, se disant que le grand air, le mouvement, la marche, tasseraient ses idées, encore confuses.
+
+Allumant un cigare, il remonta la rue Saint-Lazare et tourna Notre-Dame-de-Lorette pour gagner le faubourg Montmartre.
+
+Tout à coup, au moment où il s’engageait dans la rue Ollivier, un homme, sortant de l’ombre où il se tenait caché, bondit jusqu’à lui, le bras levé, et, de toutes ses forces, le frappa.
+
+Le paillasse, heureusement pour lui, avait cet instinct merveilleux du chat, qui se dédouble, pour ainsi dire, qui peut, tout à la fois, guetter et veiller à sa sûreté, regarder d’un côté et voir de l’autre.
+
+Il vit, ou plutôt il devina l’homme tapi dans l’ombre, et le sentit, en quelque sorte, se précipiter sur lui, et il put se renverser à demi sur ses jarrets robustes, en essayant de parer avec ses mains.
+
+Ce mouvement lui sauva certainement la vie, et c’est dans le bras qu’il reçut le furieux coup de poignard qui devait le tuer.
+
+La colère, encore plus que la douleur, lui arrachèrent une exclamation.
+
+— Ah! canaille! s’écria-t-il.
+
+Et aussitôt, bondissant d’un mètre en arrière, il tomba en garde.
+
+Mais la précaution était inutile.
+
+Voyant son coup manqué, l’assassin ne revint pas à la charge. Il poursuivit sa course et bientôt disparut dans le faubourg Montmartre.
+
+— C’est Lagors, certainement, murmurait le paillasse, et le Clameran ne doit pas être loin. Pendant que je tour-
+
+<p align="right" aria-hidden="true">
+  185
+</p>
+
+* * *
+
+nais l’église d’un côté, ils l’ont tournée de l’autre et sont venus m’attendre ici.
+
+Sa blessure, cependant, le faisait cruellement souffrir.
+
+Il alla se placer sous un réverbère pour l’examiner. Elle ne présentait sans doute aucune gravité, mais elle était fort large et le bras était traversé de part en part.
+
+Il déchira aussitôt son mouchoir de poche, en fit quatre bandes et s’entortilla le bras avec la dextérité d’un interne des hôpitaux.
+
+— Il faut, pensait-il, que je sois sur la piste de choses bien graves, pour que ces misérables se soient résolus à un meurtre. Des gens habiles comme eux, quand ils n’ont à redouter que la police correctionnelle, ne risquent pas bénévolement la cour d’assises.
+
+Cependant, rester là, sur cette place, n’était pas possible. Il s’assura qu’à la condition de braver une douleur très-vive, il pouvait encore se servir de son bras, et il poursuivit son ennemi, ayant bien soin de tenir le milieu de la chaussée et évitant les coins sombres.
+
+Il ne voyait personne, à la vérité, mais il était persuadé qu’on le suivait.
+
+Il ne se trompait pas. Lorsque arrivé au boulevard Montmartre il traversa la chaussée, il distingua deux ombres qu’il reconnut, et qui la traversèrent presque en même temps que lui, un peu plus haut.
+
+— J’ai affaire, murmura-t-il, à des gredins déterminés, ils ne se cachent même pas pour me suivre. Ils sont fins, ils doivent être rompus à des aventures comme celle-ci, j’aurai du mal à leur faire perdre ma piste. Ce n’est pas avec ces gaillards-là que réussirait le tour de la voiture, qui a si bien mis Fanferlot dedans. Il faut ajouter de plus que mon diable de chapeau gris est comme un phare dans la nuit et se voit d’une lieue.
+
+Il remontait alors le boulevard, et sans avoir besoin de détourner la tête, il devinait ses ennemis, à trente pas à peu près en arrière.
+
+— Et cependant, disait-il, poursuivant à demi-voix son monologue, il faut à tout prix que je les dépiste. Je
+
+<p align="right" aria-hidden="true">
+  186
+</p>
+
+* * *
+
+ne puis rentrer, les ayant sur mes talons, ni chez moi, ni au *Grand-Archange*. Ce n’est plus pour m’assassiner qu’ils me suivent maintenant, mais pour savoir qui je suis. Or, s’ils viennent à se douter que ce paillasse recouvre M. Verduret et que M. Verduret lui-même dissimule M. Lecoq, c’en est fait de mes projets. Ils s’envoleront à l’étranger, car ce n’est pas l’argent qui leur manque et j’en serai pour mes frais et pour mon coup de couteau.
+
+Cette idée, que peut-être Raoul et Clameran lui échapperaient, l’exaspéra si fort, qu’un instant il songea à les faire prendre.
+
+C’était chose facile, en somme. Il n’avait qu’à se précipiter sur eux, en criant au secours, on viendrait, on les arrêterait tous les trois et on les consignerait au poste à la disposition du commissaire de police.
+
+C’est ce moyen aussi simple qu’ingénieux qu’emploient les agents du service de la sûreté lorsque, rencontrant à l’improviste quelque malfaiteur qui leur est signalé, ils ne peuvent, faute d’un mandat, lui mettre la main dessus.
+
+Le lendemain, on s’explique.
+
+Or le paillasse avait en mains bien assez de preuves pour faire maintenir l’arrestation de Lagors. Il pouvait montrer la lettre et le paroissien mutilé, il pouvait révéler l’existence des reconnaissances du Mont-de-piété déposées au Vésinet, il montrerait son bras. Au pis aller, Raoul aurait à expliquer pourquoi et comment il avait volé ce nom de Lagors, et dans quel but il se faisait passer pour le parent de M. Fauvel.
+
+D’un autre côté, en agissant avec cette précipitation, on assurait peut-être le salut du principal coupable, de M. de Clameran. Quel témoignage décisif s’élevait contre lui? Aucun. On avait les présomptions les plus fortes, mais pas un fait.
+
+Tout bien réfléchi, le paillasse décida qu’il agirait seul, comme il l’avait toujours fait jusqu’ici, et que seul il arriverait à la découverte des vérités soupçonnée.
+
+<p align="right" aria-hidden="true">
+  187
+</p>
+
+* * *
+
+Ce parti arrêté, il n’avait plus qu’à donner le change à ceux qui le suivaient.
+
+— Il avait pris le boulevard de Sébastopol, et, quittant l’allure indécise qui trahissait ses hésitations, il se mit à marcher d’un bon pas.
+
+Arrivé devant le square des Arts-et-Métiers, il s’arrêta brusquement. Deux sergents de ville le croisèrent, il les arrêta pour leur demander quelques renseignements insignifiants.
+
+Cette manœuvre eut le résultat qu’il prévoyait, Raoul et Clameran se tinrent coi à vingt pas environ, n’osant avancer.
+
+Vingt pas!… c’était tout ce qu’il fallait d’avance au paillasse. Tout en causant avec les sergents de ville, il avait sonné à la maison devant laquelle ils se trouvaient. Le bruit sec du cordon lui ayant appris que la porte était ouverte, il salua et entra vivement.
+
+Une minute plus tard, les sergents de ville s’étant éloignés, Clameran et Lagors sonnaient à leur tour à cette porte.
+
+On leur ouvrit, et ils firent lever le concierge pour lui demander quel était cet individu qui venait de rentrer, déguisé en paillasse.
+
+Il n’avait pas vu, leur dit-il, rentrer le moindre masque, et, qui plus est, il n’était pas à sa connaissance qu’aucun de ses locataires fût sorti déguisé.
+
+— Après cela, ajouta-t-il, je ne puis être sûr de rien, la maison ayant une autre issue sur la rue Saint-Denis.
+
+— Nous sommes volés! interrompit Lagors, nous ne saurons jamais qui est ce paillasse.
+
+— À moins que nous ne l’apprenions trop tôt à nos dépens, murmura Clameran devenu pensif.
+
+En ce moment même où Raoul et le maître de forges se retiraient plein d’inquiétude, le paillasse, rapide comme une flèche, arrivait à l’hôtel du *Grand-Archange* comme trois heures sonnaient.
+
+Accoudé à sa fenêtre, Prosper le vit venir de loin.
+
+C’est que depuis minuit, Prosper attendait avec la
+
+<p align="right" aria-hidden="true">
+  188
+</p>
+
+* * *
+
+fiévreuse impatience d’un accusé qui attend la décision de ses juges.
+
+C’est dire avec quel empressement il courut au-devant de M. Verduret jusqu’au milieu de l’escalier.
+
+— Que savez-vous? disait-il; qu’avez-vous appris? Avez-vous vu Madeleine? Raoul et Clameran étaient-ils au bal?
+
+Mais M. Verduret n’a pas l’habitude de causer dans les endroits où on peut l’entendre.
+
+— Avant tout, répondit-il, entrons chez vous, et commencez par me donner un peau d’eau pour laver ce bobo qui me cuit comme le feu.
+
+— Ciel! vous êtes blessé!
+
+— Oui, c’est un souvenir de votre ami Raoul. Ah! il apprendra ce qu’il en coûte pour entamer la peau que voilà.
+
+La colère froide de M. Verduret-Paillasse avait quelque chose de si menaçant que Prosper en restait interdit.
+
+Lui, cependant, avait fini de panser son bras.
+
+— Maintenant, dit-il à Prosper, causons. Nos ennemis sont prévenus, il s’agit de les frapper avec la rapidité de la foudre.
+
+M. Verduret s’exprimait d’un ton bref et impérieux, que Prosper ne lui connaissait pas.
+
+— Je me suis trompé, disait-il, j’ai fait fausse route; c’est un accident qui arrive aux plus malins. J’ai pris l’effet pour la cause, il faut bien que je le confesse. Le jour où j’ai cru être assuré que des relations coupables existaient entre Raoul et M<sup>me</sup> Fauvel, j’ai cru tenir le bout du fil qui devait nous conduire à la vérité. J’aurais dû me méfier, c’était trop simple, trop naturel.
+
+— Supposez-vous M<sup>me</sup> Fauvel innocente?
+
+— Non, certes, mais elle n’est pas coupable dans le sens que je croyais. Quelles étaient mes suppositions? Je m’étais dit: « Éprise d’un jeune et séduisant aventurier, M<sup>me</sup> Fauvel lui a fait cadeau du nom d’une de ses parentes et l’a présenté à son mari comme son neveu. Le
+
+<p align="right" aria-hidden="true">
+  189
+</p>
+
+* * *
+
+stratagème était adroit pour ouvrir à l’adultère les portes de la maison. Elle a commencé par lui donner tout l’argent dont elle pouvait disposer; plus tard elle lui a confié ses bijoux, qu’il portait au Mont-de-Piété; enfin, ne possédant plus rien, elle l’a laissé puiser à la caisse de son mari. » Voilà ce que je pensais.
+
+— Et de cette façon, tout s’expliquait.
+
+— Non, tout ne s’expliquait pas, je le savais, et c’est en cela que j’ai agi avec une déplorable légèreté. Comment, avec mon premier système, expliquer l’empire de Clameran?
+
+— Clameran est simplement le complice de Lagors.
+
+— Ah! voilà où est l’erreur. Moi aussi, j’ai cru longtemps que Raoul était tout, la vérité est qu’il n’est rien. Hier, dans une discussion qui s’était élevée entre eux, le maître de forges a dit à son ancien ami: « Et, surtout, mon petit, ne t’avise pas de me résister, je te briserais comme verre. » Tout est là. Le fantastique Lagors est, non la créature de M<sup>me</sup> Fauvel, mais l’âme damnée de Clameran.
+
+— Et encore, reprit-il, est-ce que nos suppositions premières nous donnaient la raison de l’obéissance résignée de Madeleine? C’est à Clameran et non à Lagors qu’obéit Madeleine.
+
+Prosper essaya de protester.
+
+M. Verduret haussa imperceptiblement les épaules. Pour convaincre Prosper, il n’avait à prononcer qu’un mot; il avait simplement à dire que trois heures auparavant Clameran lui avait annoncé son mariage avec Madeleine.
+
+Ce mot, il commit la faute de ne le point prononcer.
+
+Persuadé qu’il arriverait à temps pour rompre ce mariage, il ne voulait pas ajouter cette inquiétude aux soucis de son jeune protégé.
+
+— Clameran, poursuivit-il, Clameran seul tient madame Fauvel. Or, comment la tient-il, quelle arme terrible assure son mystérieux pouvoir? Il résulte de renseignements positifs qu’ils se sont vus il y a quinze mois
+
+<p align="right" aria-hidden="true">
+  190
+</p>
+
+* * *
+
+pour la première fois depuis leur jeunesse, et la réputation de M<sup>me</sup> Fauvel a toujours été au-dessus de la médisance. C’est donc dans le passé qu’il faut chercher le secret de cette domination d’une part, de cette résignation de l’autre.
+
+— Nous ne saurons rien, murmura Prosper.
+
+— Nous saurons tout, au contraire, quand nous connaîtrons le passé de Clameran. Ah! quand ce soir j’ai prononcé le nom de son frère Gaston, Clameran a pâli et reculé comme à la vue d’un fantôme. Et moi, je me suis souvenu que Gaston est mort bien subitement, lors d’une visite de son frère.
+
+— Croyez-vous donc à un meurtre!…
+
+— Je puis tout croire de gens qui ont voulu m’assassiner. Le vol, mon cher enfant, n’est plus en ce moment qu’un détail secondaire. Il est aisé à expliquer, ce vol, et si ce n’était que cela, je vous dirais: Ma tâche est finie, allons trouver le juge d’instruction et lui demander un mandat.
+
+Prosper s’était levé, la poitrine gonflée, l’œil brillant d’espoir.
+
+— Oh! vous savez… Est-ce possible!…
+
+— Oui, je sais qui a donné la clé, je sais qui a donné le mot.
+
+— La clé!… peut-être c’était celle de M. Fauvel. Mais le mot…
+
+— Le mot! malheureux, c’est vous qui l’avez livré. Vous avez oublié, n’est-ce pas? Votre maîtresse, heureusement, a eu de la mémoire pour deux. Vous souvient-il d’avoir, deux jours avant le vol, soupé avec madame Gypsy, Lagors et deux autres de vos amis? Nina était triste. Vers la fin du souper, elle vous fit une querelle de femme délaissée.
+
+— En effet, j’ai ce souvenir bien présent.
+
+— Alors, vous savez ce que vous avez répondu?
+
+— Prosper chercha un moment et répondit:
+
+— Non.
+
+— Eh bien! pauvre imprudent, vous avez dit à Nina:
+
+<p align="right" aria-hidden="true">
+  191
+</p>
+
+* * *
+
+Tu as bien tort de me reprocher de ne pas penser à toi, car, à cette heure, c’est ton nom aimé qui garde la caisse de mon patron. »
+
+Prosper eut un geste fou: la vérité, comme un obus, éclatait dans son cerveau.
+
+— Oui! s’écria-t-il, oui, je me souviens.
+
+— Alors, vous comprenez le reste. Un des deux est allé trouver M<sup>me</sup> Fauvel et l’a contraint de lui remettre la clé de son mari. À tout hasard, le misérable a placé les boulons mobiles sur le nom de Gypsy. Les trois cent cinquante mille francs ont été pris. Et sachez bien que M<sup>me</sup> Fauvel n’a obéi qu’à des menaces terribles. Elle était mourante, le lendemain du vol, la pauvre femme, et c’est elle qui, au risque de se perdre, vous a envoyé dix mille francs.
+
+— Mais qui a volé? Est-ce Raoul? est-ce Clameran? Quels sont sur M<sup>me</sup> Fauvel leurs moyens d’action? Comment Madeleine est-elle mêlée à ces infamies?
+
+— À ces questions, mon cher Prosper, je ne sais encore que répondre, et c’est pour cela que nous n’allons pas encore trouver le juge. Je vous demande dix jours. Si dans dix jours je n’ai rien surpris, je reviendrai, et nous irons conter à M. Patrigent ce que nous savons.
+
+— Comment, vous partez donc?
+
+— Dans une heure, je serai sur la route de Beaucaire. N’est-ce pas des environs que sont Clameran et M<sup>me</sup> Fauvel, qui est une demoiselle de La Verberie.
+
+— Oui, je connais leurs familles.
+
+— Eh bien! c’est là que je vais les étudier. Ni Raoul ni Clameran ne nous échapperont, la police les surveille. Mais vous, Prosper, mon ami, soyez prudent. Jurez-moi de rester prisonnier ici tant que durera mon absence.
+
+Tout ce que demandait M. Verduret, Prosper le jura du meilleur cœur. Mais il ne pouvait le laisser s’éloigner ainsi.
+
+— Ne saurai-je donc pas, monsieur, demanda-t-il,
+
+<p align="right" aria-hidden="true">
+  192
+</p>
+
+* * *
+
+qui vous êtes, quelles raisons m’ont valu votre tout-puissant appui?
+
+L’homme extraordinaire eut un sourire triste.
+
+— Je vous le dirai, répondit-il, devant Nina, la veille du jour où vous épouserez Madeleine.
+
+C’est une fois abandonné à ses réflexions que Prosper comprit vraiment et réellement de quelle utilité lui avait été l’intervention toute puissante de M. Verduret.
+
+Examinant le champ des investigations de ce mystérieux protecteur, il était surpris et comme épouvanté de son étendue.
+
+Que de découvertes, en moins de huit jours, et avec quelle précision, — bien qu’il prétendit avoir fait fausse route. — Avec quelle sûreté, il en était venu d’inductions en déductions, de faits prouvés en faits probables, à reconstituer, sinon la vérité, au moins une histoire si vraisemblable qu’elle semblait indiscutable!
+
+Prosper devait bien s’avouer que, parti de rien, jamais il ne serait arrivé seul à ce résultat qui confondait sa raison.
+
+Outre qu’il n’avait ni la pénétration surprenante, ni la subtilité de conception de M. Verduret, il n’avait ni son flair ni son audace; il ne possédait pas cet art, cette science de se faire obéir, de se créer des agents et des complices, de faire concourir à un résultat commun les événements aussi bien que les hommes.
+
+N’ayant plus près de lui cet ami de l’adversité, il le regrettait. Il regrettait cette voix tantôt rude et tantôt bienveillante qui l’encourageait ou le consolait.
+
+Il se trouvait maintenant isolé jusqu’à l’effroi, n’osant pour ainsi dire ni agir ni penser seul, plus timide que l’enfant abandonné par sa bonne.
+
+Au moins eut-il le bon esprit de suivre les recommandations de son mentor. Il se renferma obstinément au *Grand-Archange*, ne mettant même pas le nez à la fenêtre.
+
+Deux fois il eut des nouvelles de M. Verduret. La première fois il reçut une lettre où cet ami lui disait avoir
+
+<p align="right" aria-hidden="true">
+  193
+</p>
+
+* * *
+
+vu son père, lequel lui avait donné un bon coup de main. La seconde fois, Dubois, le valet de chambre de M. de Clameran, vint, de la part de celui qu’il appelait « son patron, » annoncer que tout allait bien.
+
+Tout allait pour le mieux, en effet, lorsque le neuvième jour de sa réclusion volontaire, sur les dix heures du soir, Prosper eut l’idée de sortir. Il avait un violent mal de tête, depuis plusieurs nuits il dormait mal, il pensa que le grand air lui ferait du bien.
+
+M<sup>me</sup> Alexandre, qui semblait avoir été mise quelque peu dans le secret par Verduret, lui présenta certaines objections, il n’en tint compte.
+
+— Qu’est-ce que je risque, à cette heure, dans ce quartier? dit-il. Je longerai le quai jusqu’au Jardin des Plantes, et certes je ne rencontrerai personne.
+
+Le malheur est qu’il ne suivit pas strictement ce programme, et qu’arrivé près de la gare du chemin de fer d’Orléans, ayant soif, il entra dans un café et se fit servir un verre de bière.
+
+Tout en buvant à petits coups, machinalement il prit un journal parisien, le *Soleil*, et à l’article: « Bruits du jour, » sous la signature de Jacques Durand, il lut:
+
+« On annonce le mariage de la nièce d’un de nos plus honorables financiers, M. André Fauvel, avec un gentilhomme provençal, M. le marquis Louis de Clameran. »
+
+La foudre tombant sur la table même de Prosper ne lui eût point causé une si épouvantable impression.
+
+Cette nouvelle affreuse, qui lui arrivait là, à l’improviste, apportée par ce messager indifférent de la joie ou de la douleur qui s’appelle le journal, lui prouvait la justesse des appréciations de M. Verduret.
+
+Hélas! pourquoi cette certitude ne lui donna-t-elle pas la foi absolue, c’est-à-dire le courage d’attendre, la force de ne pas agir?
+
+Égaré par la douleur, perdant la tête, il vit déjà Madeleine indissolublement liée à ce misérable, il se dit que M. Verduret arriverait peut-être trop tard, et qu’à tout prix il fallait créer un obstable.
+
+<p align="right" aria-hidden="true">
+  194
+</p>
+
+* * *
+
+Il demanda au garçon une plume et du papier, et oubliant qu’il n’est pas de situation qui excuse cette lâcheté abominable qui s’appelle une lettre anonyme, déguisant son écriture de son mieux, il écrivit à son ancien patron:
+
+« Cher monsieur,
+
+Vous avez livré à la justice votre caissier, vous avez bien fait, puisque vous êtes certain qu’il a été infidèle.
+
+Mais si c’est lui qui a pris à votre caisse 350,000 fr., est-ce aussi lui qui a volé les diamants de M<sup>me</sup> Fauvel pour les porter au Mont-de-Piété, où ils sont actuellement?
+
+À votre place, prévenu comme vous l’êtes, je ne ferais pas d’esclandre. Je surveillerais ma femme, et je découvrirais qu’il faut toujours se défier des petits-cousins.
+
+De plus, avant de signer le contrat de M<sup>lle</sup> Madeleine, je passerais à la préfecture de police m’édifier sur le compte du noble marquis de Clameran. »
+
+« UN DE VOS AMIS. »
+
+Sa lettre écrite, Prosper se hâta de payer et de sortir. Puis, comme s’il eût craint que sa dénonciation n’arrivât pas assez à temps, il se fit indiquer un grand bureau, et c’est rue du Cardinal-Lemoine qu’il la jeta à la poste.
+
+Jusque-là il n’avait même pas douté de la légitimité de son action.
+
+Mais, au dernier moment, lorsque ayant avancé la main dans la boîte, il lâcha la lettre, lorsqu’il entendit le bruit sourd qu’elle fit en tombant parmi les dépêches, mille scrupules lui vinrent.
+
+N’avait-il pas eu tort d’agir avec cette précipitation? Cette lettre n’allait-elle pas déranger tous les plans de M. Verduret?…
+
+Arrivé à l’hôtel, ses scrupules se changèrent en regrets amers.
+
+Joseph Dubois était venu en son absence; il était venu au reçu d’une dépêche du patron annonçant que tout
+
+<p align="right" aria-hidden="true">
+  195
+</p>
+
+* * *
+
+était terminé, et qu’il arriverait le lendemain soir, à neuf heures, à la gare de Lyon.
+
+Prosper eut un moment d’affreux désespoir. Il eût donné tout au monde pour rentrer en possession de la lettre anonyme.
+
+Et certes, il avait raison de se désoler.
+
+À cette heure même, M. Verduret prenait le chemin de fer à Tarascon, ruminant tout un plan, pour tirer de ses découvertes le parti le plus avantageux.
+
+Car il avait tout découvert.
+
+Combinant avec ce qu’il savait déjà, le récit d’une ancienne servante de M<sup>me</sup> de La Verberie et les déclarations d’un vieux domestique des Clameran, utilisant les dépositions des gens du Vésinet au service de Lagors, dépositions recueillies et expédiées par Dubois-Fanferlot, s’aidant de notes émanant de la préfecture de police, il était arrivé, grâce à son prodigieux génie d’investigation et de calcul, à rétablir entièrement et dans ses moindres détails le drame désolant qu’il avait entrevu.
+
+Ainsi qu’il l’avait deviné et dit, c’est loin, bien loin dans le passé qu’il fallait rechercher les causes du crime dont Prosper avait été la victime.
+
+Et ce drame, le voici, tel qu’il l’avait rédigé à l’intention du juge d’instruction, non sans se dire que sans doute son récit servirait à dresser l’acte d’accusation.
+
+<p align="right" aria-hidden="true">
+  196
+</p>
+
+* * *
