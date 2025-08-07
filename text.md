@@ -6197,3 +6197,32 @@ Et ce drame, le voici, tel qu’il l’avait rédigé à l’intention du juge d
 </p>
 
 * * *
+
+<h2 id="XII" align="center" style="font-weight: 100; border: none; font-size: 2em;">
+  XII<br>
+  LE DRAME
+</h2>
+
+À deux lieues de Tarascon, sur la rive gauche du Rhône, non loin des merveilleux jardins de MM. Audibert, on aperçoit, noirci par le temps, négligé, délabré, mais solide encore, le château de Clameran.
+
+Là, vivaient, en 1841, le vieux marquis de Clameran et ses deux fils, Gaston et Louis.
+
+C’était un personnage au moins singulier, ce vieux marquis. Il était de cette race, aujourd’hui presque disparue, d’entêtés gentilshommes dont la montre s’est arrêtée en 1789 et qui ont l’heure d’un autre siècle.
+
+Attaché à ses illusions plus qu’à sa vie même, le vieux marquis s’obstinait à considérer les événements survenus depuis 89 comme une série de déplorables plaisanteries, tentatives ridicules d’une poignée de bourgeois factieux.
+
+Émigré des premiers à la suite du comte d’Artois, il n’était rentré en France qu’en 1815, à la suite des alliés.
+
+Il eût dû bénir le ciel de retrouver une partie des immenses domaines de sa famille, faible, il est vrai, mais très-suffisante pour le faire vivre honorablement ; il ne pensait pas, disait-il, devoir au bon Dieu de la reconnaissance pour si peu.
+
+Tout d’abord, il s’était fort remué pour obtenir quelque charge à la cour. À la longue, voyant ses démarches vaines, il avait pris le parti de se retirer en son château, plaignant et maudissant tout ensemble son roi qu’il adorait, et qu’au fond du cœur il traitait de jacobin.
+
+De ce moment, il s’était habitué sans peine à la vie large et facile des gentilshommes campagnards.
+
+Possédant quinze mille livres de rentes environ, il en
+
+<p align="right" aria-hidden="true">
+  197
+</p>
+
+* * *
